@@ -1,12 +1,14 @@
 # Sovereign 
 ## Space adventures of Sava Gromov
 
+**The sci-fi novel by Pavel Morava**
+
+![Sovereign](source/images/sovereign_frontpage_small.jpg)
+
 * Is it possible to become a supreme being? 
 * Is human race that indispensable as people do believe?
 * If we cannot have gods anymore, do we need demons?
 * Are imperfect copies of human beings the way how to achieve immortality?
-
-![Sovereign](source/images/sovereign_frontpage_small.jpg)
 
 Sovereign is a modern sci-fi novel, more fictional than scientific, addressing contemporary issues of our world. The main character bears no resemblance to a millennial, though. 
 
@@ -30,8 +32,6 @@ The Universe turns out to be a dangerous place: full of conflicts, threatening a
 
 Will Gromov become the Sovereign of the Solar system?
 
-# Inspiration
-
 
 # Author
 
@@ -47,5 +47,30 @@ Such a vast literary variety heavily influenced his own work, which typically re
 
 Web novels and online publishing made him reevaluate his approach to style and building blocks of the text; the result should be, hopefully, lighter, shorter, and more intelligible for reading on electronic devices. 
 
-# Technical details
+# Where to read?
+
+The most recent updates and the work in progress is located in this repository. 
+
+If you prefer reading on dedicated platforms, you can find the story on:
+
+* [Royal Road](https://www.royalroad.com/fiction/26615/sovereign)
+
+# How to contribute?
+
+The proof-readers and beta-readers are more than welcome. 
+
+If you are familiar with Github and have an account there, you can suggest edits and improvements anytime.
+
+The easiest way how to adjust a file is to click on the small pencil in the right upper corner.
+
+![how to edit a file](source/images/how_to_edit_sovereign_on_github.png)
+
+You can also help to **share**, **rate**, and **review** the novel on your favorite social platform if you like it. 
+
+The words of encouragement are always appreciated!
+
+
+
+
+
 
