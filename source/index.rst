@@ -3,12 +3,15 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Welcome to Sovereign's documentation!
+Sovereign by Pavel Morava
 =====================================
 
 .. toctree::
    :maxdepth: 2
-   :caption: Contents:
+   :caption: The battle over city
+
+   01/001_gromov arrives
+   01/002_andrey.html
 
 
 
