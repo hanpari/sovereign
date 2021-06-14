@@ -1,4 +1,5 @@
-# Sovereign 
+# Sovereign
+
 ## Space adventures of Sava Gromov
 
 **The sci-fi novel by Pavel Morava**
@@ -10,11 +11,11 @@
 * If we cannot have gods anymore, do we need demons?
 * Are imperfect copies of human beings the way how to achieve immortality?
 
-Sovereign is a modern sci-fi novel, more fictional than scientific, addressing contemporary issues of our world. The main character bears no resemblance to a millennial, though. 
+Sovereign is a modern sci-fi novel, more fictional than scientific, addressing contemporary issues of our world. The main character bears no resemblance to a millennial, though.
 
-A cynical and rational to the bone, Captain Sava Gromov becomes the ultimate enemy of the Advanced Nations. Never really fond of human race, he decides to play the role of a villain to the bitter end, fulfilling so the grand scheme of the mysterious Emperor in the Mask.        
+A cynical and rational to the bone, Captain Sava Gromov becomes the ultimate enemy of the Advanced Nations. Never really fond of human race, he decides to play the role of a villain to the bitter end, fulfilling so the grand scheme of the mysterious Emperor in the Mask.
 
-Follow him on his adventurous journey. Understand why demons have to reappear again. 
+Follow him on his adventurous journey. Understand why demons have to reappear again.
 
 # Story
 
