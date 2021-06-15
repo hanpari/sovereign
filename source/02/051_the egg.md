@@ -8,7 +8,7 @@ After Gormov locked up the door, he relaxed: "Finally, it is done. Next time, Ur
 
 "Completely, sir. I used the finest equipment available."
 
-Saying that, Uriah started winking frantically.
+Saying that, Uriah started winking non-stop.
 
 "What is it, Uriah. Something in your eyes?"
 
@@ -68,7 +68,7 @@ Not impressed, she curled her lips up. "Sure. May I ask since when do merchants 
 
 With the obvious irony, Simone waved her hand toward Luciano's paintings. "Captain Gromov, do not misunderstand. Even though I do not mind you being concerned about your safety, just please, make your stories more believable. I guess you found the video somewhere on the Darknet, when you were browsing some nasty porn. Am I right?"
 
-In awe, Gromov gulped. After a short consideration, he nodded in defeat. "You are a very keen observer, Miss Yeuxbleu. Being a space merchant is a lonely job, so beside saving an unthankful lot, I have never had anything better to do than watching perverted videos and painting half-naked valkyries. By any chance, since you are the Professor Zhutra's students, aren't you both involved in psychology? I really enjoy having my exposed soul dissected in this manner."
+In awe, Gromov considered his options. Do I need defend myself? Who cares? After a short consideration, he nodded in defeat. "You are a keen observer, Miss Yeuxbleu. Being a space merchant is a lonely job, so beside saving an unthankful lot, I have never had anything better to do than watching perverted videos and painting half-naked valkyries. By any chance, since you are the Professor Zhutra's students, aren't you both involved in psychology? I really enjoy having my exposed soul dissected in this manner."
 
 "Oh, I hope I didn't insult you," Simone said gently, as if calming down a crying infant. "Men are like overgrown children, picturing themselves as unwavering superheroes. Of course, I am grateful to you, but please, pretty please, do not pretend you are some ex-Space Forces' officer. I'll never buy it. I am sure you have other qualities to be proud of. For instance, the paintings are decent for an amateur. Being you, I would focus on more realistic anatomy, but you may like specific female parts enlarged."
 
@@ -78,11 +78,11 @@ Simone frowned: "Table decorations?"
 
 "Table decorations," confirmed Gromov, adding no more details. "See you later, Miss Yeuxbleu. I'm looking forward to another opportunities to have a chitchat with you. After I glue back together my fragile male ego, of course. By the way, inform Professor Zhutra that I want to speak with him afterward. I am curious what business had the University-owned spaceship in this part of Universe."
 
-Quite satisfied that he managed to have the last word, Gromov hurried back to his cabin where the monitoring software run on one of screens, supplied by several strategically placed cameras, installed by Uriah.
+Quite satisfied that he managed to have the last word, Gromov hurried back to his cabin where the monitoring software, supplied by several strategically placed cameras, installed by Uriah.
 
 "What was the moron thinking? That I am a voyeur or what?"
 
-Recalling the Uriah's lewd winking and Simone's condescending tone, Gromov hesitated, but in the end, he still kept watching the situation in the cabin, putting the safety before privacy.
+Recalling the Uriah's lewd winking and Simone's condescending tone, Gromov hesitated, but in the end, he still kept watching the situation, prioritized  safety over privacy.
 
 Nevertheless, when Simone dropped her towel, he did not bother to look away, enjoying the view shamelessly.
 
@@ -92,7 +92,7 @@ Professor Zhutra, coming naked out of the bathroom, took his bag and opened it. 
 
 "Too late." Simone shrugged. "I've already said my piece to him. If you ask me, he is a harmless fellow. Once he realized I saw through him, he just walked away."
 
-Meanwhile, her companion was wildly throwing the content of his bag on the bed. Then, he stood up with a darkened expression. "That harmless fellow has stolen me my artefact. The egg is gone!"
+Meanwhile, her companion was maniacally throwing the content of his bag on the bed. Then, he stood up with a darkened expression. "That harmless fellow has stolen my artefact. The egg is gone!"
 
 Simone seemed startled. "What egg? Wait, Khamal, you are not serious, aren't you? You promised to me that you would not bring that thing along."
 
@@ -102,4 +102,22 @@ With no warning, Simone came closer to Professor Zhutra and slapped his face har
 
 "Stop overreacting, Simone. The egg is not a weapon."
 
-"Oh, is it not? So what is it, then? Something has exploded, one of the items we found. But now, you are absolutely sure that the suspicious grenade-like egg is no weapon. Even simpleton like Gromov will not swallow the lie it is just a piece of decoration, especially, if you keep making fuzz about it."
+"Oh, is it not? So what is it, then? Something has exploded, probably one of the items we found. But now, you are absolutely sure that the suspicious grenade-like egg is no weapon. Even simpleton like Gromov will not swallow the lie it was just a piece of decoration. Especially, if you keep making fuzz about it."
+
+"The motor malfunctioned. The explosion came from the rear section, not the store. And I am not making fuzz. The egg is mine. I mean the egg is ours. He had no right to confiscate it."
+
+"The egg is dangerous," Simone insisted. "Everything the Emperor touched is cursed. The DOZOR is after it."
+
+"My lovely Simone! Calm down. You can get millions for these artifacts, so the criminals target them, which, unfortunately, led to many deaths and misfortunes. There is no need to invent some mysterious organization, though. I agree that having the artifact may bring disaster, but not because of curses or accidental explosions. Remember, we did not disclose the target of our expedition to anyone else, so nobody knows what we were after. We are safe."
+
+"We are not, you jerk. We are not safe at all, Khamal. What about the encrypted message someone had sent from our ship? I saw you were panicking back then."
+
+"There was no encrypted data. Modern devices tries communicate every now and then. Relax! As soon as we are back home, I put the egg into a bank safe. I took all possible precautions, trust me."
+
+Simone sneered. "If you took all possible precautions, we would never happen to be here, two survivals of five, locked up by a paranoid captain. I have to apologize to Gromov, anyway. A shut-in like him knows more about safety than you. By the way, he wants to meet you afterward. From what he said, I guess he intend to interrogate you about our purpose here. Pretty sure you will have hard times to satisfy his curiosity. I wonder what you want to tell him about the egg."
+
+Professor Zhutra frowned: "Nothing, absolutely nothing. No one has right to stick one's nose into my, sorry, our business. We obtained the egg legally, I can prove as much."
+
+"Good luck with that. Hyenas are known for their firm bites."
+
+Under impression that the raging storm was over, Khamal smiled back and stated confidently: "No worries. As you said before, he is a simpleton. If I throw at him some technical jargon, like a quantum calibration machine, he will trust me. Deep inside, these blokes suffer from inferiority complex. He never admits he has no idea what I am talking about."

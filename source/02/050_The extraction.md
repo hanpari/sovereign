@@ -84,7 +84,7 @@ As soon as he climbed out, he reached his hand with a bright smile, flashing unn
 
 "Do not touch my captain!"
 
-With apparent dislike, Uriah pointed his improvised spear toward the approaching man. If not for Gromov, the hacker would score his first kill, for Professor Zhutra nearly git himself impaled.
+With apparent dislike, Uriah pointed his improvised spear toward the approaching man. If not for Gromov, the hacker would score his first kill, for Professor Zhutra nearly got himself impaled.
 
 "Oh my...!"
 
