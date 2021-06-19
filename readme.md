@@ -2,7 +2,11 @@
 
 ## Space adventures of Sava Gromov
 
-**The sci-fi novel by Pavel Morava**
+The sci-fi novel by [Pavel Morava](https://blog.pavelmorava.com/)
+
+> This book contains a **good story dept**, your interested in what will happen next and the best thing is the actually really good **developed characters** not just the mc but every person **feels alive** and 3D. One huge plus point is also that the mc is a likable person and stays **true to his character**. You can see that this book is written by an experienced and mature person because you can definitely see that the story is fleshed out and that there is definitely content going to come.
+>
+> -- <cite>Volker Huetter</cite>
 
 ![Sovereign](source/images/sovereign_frontpage_small.jpg)
 
@@ -17,7 +21,7 @@ A cynical and rational to the bone, Captain Sava Gromov becomes the ultimate ene
 
 Follow him on his adventurous journey. Understand why demons have to reappear again.
 
-# Story
+## Story
 
 After his involuntary departure from Space Forces, in which he spent twenty years of life, Captain Sava Gromov desires an extra reason for his existence.
 
@@ -33,7 +37,7 @@ The Universe turns out to be a dangerous place: full of conflicts, threatening a
 
 Will Gromov become the Sovereign of the Solar system?
 
-# Author
+## Author
 
 Born in the Czech Republic, Pavel Morava is a non-native English speaker. When he was twenty-two years old, he published his first book that did not become an international bestseller.
 
@@ -47,7 +51,7 @@ Such a vast literary variety heavily influenced his own work, which typically re
 
 Web novels and online publishing made him reevaluate his approach to style and building blocks of the text; the result should be, hopefully, lighter, shorter, and more intelligible for reading on electronic devices.
 
-# Where to read?
+## Where to read?
 
 The most recent updates and the work in progress is located in this repository.
 
@@ -55,7 +59,7 @@ If you prefer reading on dedicated platforms, you can find the story on:
 
 * [Royal Road](https://www.royalroad.com/fiction/26615/sovereign)
 
-# How to contribute?
+## How to contribute?
 
 The proof-readers and beta-readers are more than welcome.
 

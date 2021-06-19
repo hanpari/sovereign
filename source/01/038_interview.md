@@ -80,7 +80,7 @@ A: I wouldn't go that far. I guess I can't expect everyone to be friendly with m
 
 Q: Annabelle? Who is she?
 
-A: Annabelle Corvin, my contact from the MoD. A competent aid, an unmatched talent if you need to manage things. Sadly, Captain Gromov's presence completely broke her psyche.
+A: Annabelle Corbin, my contact from the MoD. A competent aid, an unmatched talent if you need to manage things. Sadly, Captain Gromov's presence completely broke her psyche.
 
 Q: How come?
 
