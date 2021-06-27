@@ -4,7 +4,7 @@
 
 The sci-fi novel by [Pavel Morava](https://blog.pavelmorava.com/)
 
-> This book contains a **good story dept**, your interested in what will happen next and the best thing is the actually really good **developed characters** not just the mc but every person **feels alive** and 3D. One huge plus point is also that the mc is a likable person and stays **true to his character**. You can see that this book is written by an experienced and mature person because you can definitely see that the story is fleshed out and that there is definitely content going to come.
+> This book contains a **good story dept**, you're interested in what will happen next and the best thing is the actually really good **developed characters**; not just the mc but every person **feels alive** and 3D. One huge plus point is also that the mc is a likable person and stays **true to his character**. You can see that this book is written by an experienced and mature person because you can definitely see that the story is fleshed out and that there is definitely content going to come.
 >
 > -- <cite>Volker Huetter</cite>
 
