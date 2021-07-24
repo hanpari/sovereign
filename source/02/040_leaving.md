@@ -1,3 +1,5 @@
+# Leaving
+
 After they had released him from the detention cell, Gromov realized he had nowhere to go. He only knew people who lived at Dolzana base, and he did not intend to show anywhere near Space Forces' facility again. But, to his surprise, the latest events made him bitter.
 
 The bars had not opened yet; the city offered no sanctuary in which he could wash away the unpleasant aftertaste, so he just bought a bottle of vodka in a small supermarket and downed half of it.
