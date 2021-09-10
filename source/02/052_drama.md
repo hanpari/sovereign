@@ -18,8 +18,24 @@ Samara always addressed Andrey by his surname. Originally, Gromov thought she di
 
 "Peter is a fine fellow, my favorite buddy. Certainly better than certain chatter-box. I see no reason why I should not be happy."
 
-"If I am not mistaken, I've met you two about a year ago," Samara sighed and put her slender hand on his. "Two brave soldiers who wanted to shoot my dog."
+"If I am not mistaken, I met you two about a year ago," Samara sighed and put her slender hand on his. "Two brave soldiers who wanted to shoot my dog."
 
 "It was not your dog. And Andrey did not shoot it."
 
 "A pity because I would not mind. My aunt's dog is an ugly, pitiful creature."
+
+Gromov was clearly remembering this very encounter.
+
+In the late spring days, he and Andrey used to play chess in the park, drinking from a bottle that Andrey labeled as METHANOL FOR EXTERNAL USE ONLY.
+
+After his second backup in a row, Andrey was under observation period, daily visiting the near hospital and out of duty. His mental state suffered heavily because the detoriation caused by the backup became more prominent.
+
+Their games of chess were less balanced, and Andrey complained that evaluating five moves ahead made his head hurt - which had never been an issue before. Due to his internal struggle with growing migraine, he tended to get irritated over small things.
+
+Suddenly, he stood up with an angry expression and said to someone behind Gromov's back: "Hey beauty, the dog of yours seems to be my compatriot in pain. Do you mind if I kill it to shorten its suffering?"
+
+When Gromov turned around, he spotted dark-haired lady with green eyes, thin lips, and well-defined cheekbones, cladded in a black skirt and snow-white shirt who wore a jacket over her forearm.
+
+On a long leash, she was walking a grayish French bulldog. Wheezing, coughing, and breathing hardly, the animal bravely treaded the gravel path, with huge eyes almost popping out of shallow sockets. Every day in dog's life had to be a constant purgatory, a result of endless over-breeding.
+
+The woman appeared taken aback for a while, evaluating both men and their SF uniforms. Finally as she came to a conclusion they do not pose any threat, she stopped and retorted calmly: "I do not mind at all, dear sir. Make a short work with this pitiful creature as you wish. But once you do that, please be sure to collect his dead body and accompany me back to my aunt who believes that the dog is the only pleasure of her existence."
