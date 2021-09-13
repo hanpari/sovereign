@@ -34,8 +34,30 @@ Their games of chess were less balanced, and Andrey complained that evaluating f
 
 Suddenly, he stood up with an angry expression and said to someone behind Gromov's back: "Hey beauty, the dog of yours seems to be my compatriot in pain. Do you mind if I kill it to shorten its suffering?"
 
-When Gromov turned around, he spotted dark-haired lady with green eyes, thin lips, and well-defined cheekbones, cladded in a black skirt and snow-white shirt who wore a jacket over her forearm.
+When Gromov turned around, he spotted dark-haired lady with green eyes, thin lips, and well-defined cheekbones, clad in a black skirt and snow-white shirt, who wore a jacket over her forearm.
 
-On a long leash, she was walking a grayish French bulldog. Wheezing, coughing, and breathing hardly, the animal bravely treaded the gravel path, with huge eyes almost popping out of shallow sockets. Every day in dog's life had to be a constant purgatory, a result of endless over-breeding.
+On a long leash, she was walking a grayish French bulldog. Wheezing, coughing, and breathing hardly, the animal bravely treaded the gravel path, with huge eyes almost popping out of shallow sockets. Every day in flat-faced dog's life had to be a constant purgatory.
 
 The woman appeared taken aback for a while, evaluating both men and their SF uniforms. Finally as she came to a conclusion they do not pose any threat, she stopped and retorted calmly: "I do not mind at all, dear sir. Make a short work with this pitiful creature as you wish. But once you do that, please be sure to collect his dead body and accompany me back to my aunt who believes that the dog is the only pleasure of her existence."
+
+With slightly curved lips, she approached Andrey and inspected his uniform: "Sergeant Jerzinski, is it?"
+
+"That's right, madame. At your full disposal."
+
+Since Andrey did not waver either, Gromov considered the option of jumping out and bursting into apologies. On the other hand, he thought, why should I be sorry for that moron?
+
+The staring contest between Andrey and the young lady took about one long minute, during which Gromov experienced amusement and emberrasement simultanously.
+
+Sardonically, the woman continued: "Since you are so fond of mercy killing, Sergeant Jerzinski, I wonder if you can do me a favor."
+
+"With pleasure. Do you own more abused animals that need an extermination?"
+
+"Sort of. As I said before, the dog belongs to my auntie, who is terminally ill. I am afraid that the very moment she realizes that the doggie left her side forever, she may get a bit upset. This will result likely into prolonged agony that should not left you undisturbed, given how caring human you appear to be. My request is simple. Come with me and send the doggie and my poor aunt on their last journey together."
+
+"Only this?" Andrey sneered. "Have you an preferable order of how to perform these executions?"
+
+"Most certainly," the woman nodded in satisfaction. "If you do not mind, my auntie first. From perpective of humanity, she should depart with her beloved pet in arms, quitting the world without necessary pain and sadness. I hope you can manage this selfish request of mine, sergeant."
+
+After the exchange, Gromov wished he could have become invisible. However, Andrey calmly packed up the chessboard, put chesspieces into the case, and gestured towards her.
+
+"Lead the way, milady. Nobody can blame SF officers for abandoning their duty. May I introduce you my colleague to you? This is Captain Gromov. I can imagine that seeing the foregoing scene (hopefully not too gory) may negatively affect your psyche, so you may want to seek a safe haven in his manly disposition."
