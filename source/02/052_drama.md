@@ -56,8 +56,40 @@ Sardonically, the woman continued: "Since you are so fond of mercy killing, Serg
 
 "Only this?" Andrey sneered. "Have you an preferable order of how to perform these executions?"
 
-"Most certainly," the woman nodded in satisfaction. "If you do not mind, my auntie first. From perpective of humanity, she should depart with her beloved pet in arms, quitting the world without necessary pain and sadness. I hope you can manage this selfish request of mine, sergeant."
+"Most certainly," the woman nodded in satisfaction. "If you do not mind, my auntie first. She should depart with her beloved pet in arms, quitting the world without necessary pain and sadness. I hope you can manage this selfish request of mine, sergeant."
 
-After the exchange, Gromov wished he could have become invisible. However, Andrey calmly packed up the chessboard, put chesspieces into the case, and gestured towards her.
+"No problem."
 
-"Lead the way, milady. Nobody can blame SF officers for abandoning their duty. May I introduce you my colleague to you? This is Captain Gromov. I can imagine that seeing the foregoing scene (hopefully not too gory) may negatively affect your psyche, so you may want to seek a safe haven in his manly disposition."
+After the exchange, Gromov wished he could have disappeared. However, Andrey calmly packed up the chessboard, put chesspieces into the case, and gestured towards her.
+
+"Lead the way, milady," he said. "Nobody can blame SF officers for abandoning their duty. May I introduce my colleague to you? This is Captain Gromov. I can imagine that seeing the upcoming scene (hopefully not too gory) will negatively affect your psyche, so you may want to seek a safe haven in his manly disposition."
+
+Gromov made himself smaller. "I am a completely unrelated party."
+
+At least, he wanted to clarify as much. But the moment, she came closer and examined him carefully, the same way she had done it with Andrey, he got captivated by her looks.
+
+"So pleased to meet you, captain."
+
+The offered hand had sensitive, slender fingers with long nails. From shoes to pearl necklace, she emanated an air of cultivated, fashion-aware woman, situated in the upper class. But she lacked the predatory hint often found (at least in Gromov's opinion) among wealthy people.
+
+Even though he did not intend to get involved in Andrey's mess, he hardly resisted the attraction, caused by her natural charm. Still, he did not manage to smile back.
+
+"Nice to meet you," he answered almost indifferently.
+
+"Are you a pilot?"
+
+"Right now I feel more like a warden warden of a mental asylum," replied Gromov, angrily staring at Andrey. "Please, do excuse him. My friend lives trough certain diffuculties, so he deems himself entitled to unforgivable rudeness. But rest assured, we are both harmless."
+
+"Is it so?" She got closer to him and whispered. "With the regards to national security, I wonder if I should not be petrified if a SF officer admits he was harmless. Aren't you suppose to be, you know, dangerous, or threatening? Like a hyena?"
+
+Hyena?
+
+Gromov did not remember Samara ever talking about hyenas. Moreover, the scene he happened to be in felt somewhat unrealistic. Why was Andrey alive? Am I dying while flashbacks of my life wander before my eyes?
+
+But he did not mind. There were two people he ever cared about. He obediently followed the suit, inquiring about Samara's circumstances.
+
+"I am a new kid on the block," she chatted jovially. "My auntie left me walk her dog to get aquinted with new people. She said explicitly that men who care about animals cannot be bad. Futhermore, she explained to me I should contact SF officers if I get into trouble. She is so fond of SF officers. My uncle was one of them. I am pretty sure she will be very happy to meet you before, you know..."
+
+She made a quick movement around her neck.
+
+"This..."
