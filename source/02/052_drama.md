@@ -78,18 +78,40 @@ Even though he did not intend to get involved in Andrey's mess, he hardly resist
 
 "Are you a pilot?"
 
-"Right now I feel more like a warden warden of a mental asylum," replied Gromov, angrily staring at Andrey. "Please, do excuse him. My friend lives trough certain diffuculties, so he deems himself entitled to unforgivable rudeness. But rest assured, we are both harmless."
+"Right now I feel more like a warden warden of a mental asylum," replied Gromov, angrily staring at Andrey. "Please, do excuse him. My friend lives through harsh diffuculties, so he deems himself entitled to unforgivable rudeness. But rest assured, we are both harmless."
 
 "Is it so?" She got closer to him and whispered. "With the regards to national security, I wonder if I should not be petrified if a SF officer admits he was harmless. Aren't you suppose to be, you know, dangerous, or threatening? Like a hyena?"
 
 Hyena?
 
-Gromov did not remember Samara ever talking about hyenas. Moreover, the scene he happened to be in felt somewhat unrealistic. Why was Andrey alive? Am I dying while flashbacks of my life wander before my eyes?
+Gromov did not remember Samara ever talking about hyenas. Moreover, the scene he happened to be in felt somewhat unrealistic. Where the coffee went? Why was Andrey alive? Am I dying while flashbacks of my life wander before my eyes?
 
 But he did not mind. There were two people he ever cared about. He obediently followed the suit, inquiring about Samara's circumstances.
 
-"I am a new kid on the block," she chatted jovially. "My auntie left me walk her dog to get aquinted with new people. She said explicitly that men who care about animals cannot be bad. Futhermore, she explained to me I should contact SF officers if I get into trouble. She is so fond of SF officers. My uncle was one of them. I am pretty sure she will be very happy to meet you before, you know..."
+"I am a new kid on the block," she chatted jovially. "My auntie left me walk her dog to get aquinted with new people. She said explicitly that men who care about animals cannot be bad. Futhermore, she explained to me I should contact SF officers if I get into trouble. She is sooo fond of SF officers. My uncle was one of them. I am pretty sure she will be very happy to meet you before, you know..."
 
 She made a quick movement around her neck.
 
 "This..."
+
+Uncomfortable to the bones, Gromov could not get rid of the impression she was doing it on purpose. Meanwhile, Andrey, walking few steps behind, wore a cruel expression of serial killer.
+
+About ten minutes later, they stooped at an ornamental gates of a villa, located in an expensive neigborhood. Samara invited them inside and lead their party into exquisite lounge where an old lady sat on a wheelchair, accompanied by a nurse.
+
+"Auntie, I'm home," Samara said and kissed the lady on forehead. "These gentlemen agreed to help us with the small problem of yours."
+
+"Oh, so nice of you," the lady greeted them entusiatically. "My hubby always told me that the SF officers are the best. Samara has no friends here, and frankly, I would never expect anyone to take care of me at a moment notice. Splendid! I begged the company to come as soon as possible, but they decided to neglect my worsening conditions altogether."
+
+"The company?"
+
+Gromov wondered if she was reffering to some shady bussiness, involved in euthanasia. Suddenly, he spotted how Andrey was rolling up his sleeves.
+
+"Do you want to make it here?" he asked grimly.
+
+"That would be lovely. Curently, I am not able to move elsewhere. It is so cumbersome that I prefer to stay downstairs. I had to ask Samara to walk my sweetheart because I'm stuck in the lounge. Quite disturbing situation I'm afraid. But with you here, I'm sure that all my trouble will vanish at once."
+
+"Count on us!"
+
+To Gromov's horror, Andrey came closer and observed the lady from all possible angles.
+
+"No problem," he said to Samara afterwards. "Can I have some tools? Do you know where your aunt store knives? Paper towels can be handy as well. It may be a dirty work. But"
