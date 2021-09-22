@@ -16,7 +16,7 @@ Samara pushed her vine away and watched him attentively. She had green, fox-like
 
 Samara always addressed Andrey by his surname. Originally, Gromov thought she did not like Andrey and tried to keep a distance from him since he was a noisy and unpolished "diamond in raw". But even so, she always insisted on meeting the both of them, treating Andrey like an old friend, sometimes almost making Gromov jealous. She acted more detached during the rare opportunities when she and Gromov were alone.  
 
-"Peter is a fine fellow, my favorite buddy. Certainly better than certain chatter-box. I see no reason why I should not be happy."
+"Peter is a fine fellow, my favorite buddy," Gromov insisted lightly. He did not lie, though. In his opinion, Peter Grasov possesed qualities a woman should appreciate in a man: reliable, succesful, handsome, and kind-hearted. Compared to Peter, Gromov felt unworthy. "I see no reason why I should not be happy."
 
 "If I am not mistaken, I met you two about a year ago," Samara sighed and put her slender hand on his. "Two brave soldiers who wanted to shoot my dog."
 
@@ -24,11 +24,15 @@ Samara always addressed Andrey by his surname. Originally, Gromov thought she di
 
 "A pity because I would not mind. My aunt's dog is an ugly, pitiful creature."
 
-Gromov was clearly remembering this very encounter.
+Gromov remembered this very encounter. Then, a strange thing happened. The stage had changed, almost like he was experiencing a flashback in a movie.
 
-In the late spring days, he and Andrey used to play chess in the park, drinking from a bottle that Andrey labeled as METHANOL FOR EXTERNAL USE ONLY.
+"Hello? Who? It's you ... No, no problem. The park just
 
-After his second backup in a row, Andrey was under observation period, daily visiting the near hospital and out of duty. His mental state suffered heavily because the detoriation caused by the backup became more prominent.
+He saw Andrey picking up his cellphone, talking to someone in a hushed voice.
+
+In the late spring days, he and Andrey used to play chess in the park, drinking from a bottle, labeled as METHANOL FOR EXTERNAL USE ONLY.
+
+After his second backup in a row, Andrey was under observation period, daily visiting the near hospital and out of duty. His mental state suffered because the detoriation caused by the backup became more prominent.
 
 Their games of chess were less balanced, and Andrey complained that evaluating five moves ahead made his head hurt - which had never been an issue before. Due to his internal struggle with growing migraine, he tended to get irritated over small things.
 
@@ -90,7 +94,7 @@ But he did not mind. There were two people he ever cared about. He obediently fo
 
 "I am a new kid on the block," she chatted jovially. "My auntie left me walk her dog to get aquinted with new people. She said explicitly that men who care about animals cannot be bad. Futhermore, she explained to me I should contact SF officers if I get into trouble. She is sooo fond of SF officers. My uncle was one of them. I am pretty sure she will be very happy to meet you before, you know..."
 
-She made a quick movement around her neck.
+She made a quick cutting movement around her neck.
 
 "This..."
 
@@ -106,7 +110,7 @@ About ten minutes later, they stooped at an ornamental gates of a villa, located
 
 Gromov wondered if she was reffering to some shady bussiness, involved in euthanasia. Suddenly, he spotted how Andrey was rolling up his sleeves.
 
-"Do you want to make it here?" he asked grimly.
+"Do you want to make it here?" Andrey asked grimly.
 
 "That would be lovely. Curently, I am not able to move elsewhere. It is so cumbersome that I prefer to stay downstairs. I had to ask Samara to walk my sweetheart because I'm stuck in the lounge. Quite disturbing situation I'm afraid. But with you here, I'm sure that all my trouble will vanish at once."
 
@@ -114,4 +118,46 @@ Gromov wondered if she was reffering to some shady bussiness, involved in euthan
 
 To Gromov's horror, Andrey came closer and observed the lady from all possible angles.
 
-"No problem," he said to Samara afterwards. "Can I have some tools? Do you know where your aunt store knives? Paper towels can be handy as well. It may be a dirty work. But"
+"No problem," he said to Samara afterwards. "Can I have some tools? Do you know where your aunt store knives? Paper towels can be handy as well. It may be a dirty work."
+
+Samara nodded and brought a toolbox, from which Andrey took out a huge hammer.
+
+"What are you going to do?"
+
+Gromov could not take it anymore. After approaching Andrey, he took the hammer from his hands. "Seriously, even in your current state, you should know better."
+
+"Oh, should I?" Andrey grinned. "So, will your majesty repair the bloody wheelchair? Because I saw you with a screwdriver before and I wanted to save you from emberassement. Don't forget these beautiful ladies are watching you."
+
+"Repair the wheelchair?"
+
+Confused, Gromov realized that Andrey and Samara started to laugh loudly as if they were sharing some private joke.
+
+"You guys know each other?"
+
+"Well, sort of." Samara wiped off the tears of laughter. "Excuse me, captain. I am sooo sorry."
+
+"You don't seem too sorry to me. May I know what's happening here?"
+
+"This is a secret," retorted Andrey. "You treated me like a mental, Sava. Now it's my turn for a little revenge. You will never know what happened between me and this fine lady. No one will ever tell you. Mystery of the universe stays closed before you very eyes, which will haunt you to your last breath."
+
+Gromov sighed and turned to Samara. "If I understand correctly, the wheelchair of your aunt has broken, so you called Andrey. Have you met him before?"
+
+Even though Andrey tried to hush Samara vehemently, she disregarded him and led Gromov outside, to a  garden, in which the flowers had begun blossoming.
+
+The place did not match Gromov's memories, having been replaced by more vivid, pitoresque corner of a fairy land.
+
+"Am I dreaming?" he pondered. But in normal dreams, such a realization was a foreplay for waking up, while now, he only felt a tad hazy with his brain altering between his old and current self.
+
+"Dreaming?" she went on softly. "Should I explain where I met Jerzinsky?"
+
+"No need."
+
+He was already aware of that part since he had lived through this once. Samara had arrived to the city a week ago and gotten stuck on the airport with a load of baggages. Coincidentally, Andrey had been wandering around and offered her help, so they became aquintances. When the wheelchair had broken down, she called Andrey.
+
+Samara shrugged. "Still so impatient! A girl would think you didn't need to rush things under such circumstances. We have met again after so many years, Sava, but you made sure to burst the bubble. What if I let you kill my auntie and her dog today? But I haven't change our history. I've played my part accordingly and truthfully. But what about you? Even in a wonderland, you keep analyzing the world instead of being thankful for the rare opportunity to meet the only love of your life."
+
+"The only love? Sounds so noble and haughty," Gromov grinned. "I've never admitted this."
+
+"Nor have I. I repeat, Sava. We have both a rare opportunity. I ask once again. Should I marry Peter?"
+
+"The answer stays the same, Samara. You should marry him. You've already done so."
