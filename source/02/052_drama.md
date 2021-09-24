@@ -26,11 +26,11 @@ Samara always addressed Andrey by his surname. Originally, Gromov thought she di
 
 Gromov remembered this very encounter. Then, a strange thing happened. The stage had changed, almost like he was experiencing a flashback in a movie.
 
-"Hello? Who? It's you ... No, no problem. The park just
+"Hello? Who? It's you ... No, no problem. The park near the hospital ... OK, bye."
 
 He saw Andrey picking up his cellphone, talking to someone in a hushed voice.
 
-In the late spring days, he and Andrey used to play chess in the park, drinking from a bottle, labeled as METHANOL FOR EXTERNAL USE ONLY.
+In the late spring days, they used to play chess in the park, drinking from a bottle, labeled as METHANOL FOR EXTERNAL USE ONLY.
 
 After his second backup in a row, Andrey was under observation period, daily visiting the near hospital and out of duty. His mental state suffered because the detoriation caused by the backup became more prominent.
 
@@ -42,7 +42,7 @@ When Gromov turned around, he spotted dark-haired lady with green eyes, thin lip
 
 On a long leash, she was walking a grayish French bulldog. Wheezing, coughing, and breathing hardly, the animal bravely treaded the gravel path, with huge eyes almost popping out of shallow sockets. Every day in flat-faced dog's life had to be a constant purgatory.
 
-The woman appeared taken aback for a while, evaluating both men and their SF uniforms. Finally as she came to a conclusion they do not pose any threat, she stopped and retorted calmly: "I do not mind at all, dear sir. Make a short work with this pitiful creature as you wish. But once you do that, please be sure to collect his dead body and accompany me back to my aunt who believes that the dog is the only pleasure of her existence."
+The woman appeared taken aback for a while, evaluating both men and their SF uniforms. Finally as she came to a conclusion they do not pose any threat, she stopped and retorted calmly: "I do not mind at all, dear sir. Make a short work with this pitiful creature of mine. But once you do that, please be sure to collect his dead body and accompany me back to my aunt who believes that the dog is the only pleasure of her existence."
 
 With slightly curved lips, she approached Andrey and inspected his uniform: "Sergeant Jerzinski, is it?"
 
@@ -66,7 +66,7 @@ Sardonically, the woman continued: "Since you are so fond of mercy killing, Serg
 
 After the exchange, Gromov wished he could have disappeared. However, Andrey calmly packed up the chessboard, put chesspieces into the case, and gestured towards her.
 
-"Lead the way, milady," he said. "Nobody can blame SF officers for abandoning their duty. May I introduce my colleague to you? This is Captain Gromov. I can imagine that seeing the upcoming scene (hopefully not too gory) will negatively affect your psyche, so you may want to seek a safe haven in his manly disposition."
+"Lead the way, milady," he said. "Nobody can blame SF officers for abandoning their duty. May I introduce my colleague to you? This is Captain Gromov. I can imagine that seeing the upcoming scene will negatively affect your psyche, so you may want to seek a safe haven in his manly disposition."
 
 Gromov made himself smaller. "I am a completely unrelated party."
 
@@ -74,37 +74,37 @@ At least, he wanted to clarify as much. But the moment, she came closer and exam
 
 "So pleased to meet you, captain."
 
-The offered hand had sensitive, slender fingers with long nails. From shoes to pearl necklace, she emanated an air of cultivated, fashion-aware woman, situated in the upper class. But she lacked the predatory hint often found (at least in Gromov's opinion) among wealthy people.
+The offered hand had sensitive, slender fingers with long nails. From shoes to pearl necklace, she emanated an air of cultivated, fashion-aware woman, situated in the upper class. But she lacked the predatory aura often found (at least in Gromov's opinion) among wealthy people.
 
 Even though he did not intend to get involved in Andrey's mess, he hardly resisted the attraction, caused by her natural charm. Still, he did not manage to smile back.
 
-"Nice to meet you," he answered almost indifferently.
+"Nice to meet you," he answered indifferently.
 
 "Are you a pilot?"
 
-"Right now I feel more like a warden warden of a mental asylum," replied Gromov, angrily staring at Andrey. "Please, do excuse him. My friend lives through harsh diffuculties, so he deems himself entitled to unforgivable rudeness. But rest assured, we are both harmless."
+"Right now I feel more like a warden of a mental asylum," replied Gromov, angrily staring at Andrey. "Please, do excuse him. My friend lives through harsh diffuculties, so he deems himself entitled to unforgivable rudeness. But rest assured, we are both harmless."
 
 "Is it so?" She got closer to him and whispered. "With the regards to national security, I wonder if I should not be petrified if a SF officer admits he was harmless. Aren't you suppose to be, you know, dangerous, or threatening? Like a hyena?"
 
 Hyena?
 
-Gromov did not remember Samara ever talking about hyenas. Moreover, the scene he happened to be in felt somewhat unrealistic. Where the coffee went? Why was Andrey alive? Am I dying while flashbacks of my life wander before my eyes?
+Gromov did not remember Samara ever talking about hyenas. Moreover, the scene he happened to be in felt somewhat unrealistic. Where the coffee went? Why was Andrey alive? Am I dying while clips of my life wander before my eyes?
 
 But he did not mind. There were two people he ever cared about. He obediently followed the suit, inquiring about Samara's circumstances.
 
-"I am a new kid on the block," she chatted jovially. "My auntie left me walk her dog to get aquinted with new people. She said explicitly that men who care about animals cannot be bad. Futhermore, she explained to me I should contact SF officers if I get into trouble. She is sooo fond of SF officers. My uncle was one of them. I am pretty sure she will be very happy to meet you before, you know..."
+"I am a new kid on the block," she chatted jovially. "My auntie left me walk her dog to get aquinted with new people. She said explicitly that men who care about animals cannot be bad. Futhermore, she explained to me I should contact SF officers if I get into trouble. She is sooo fond of SF officers. My uncle was one of them. I am pretty sure she will be very happy to meet you before ..."
 
 She made a quick cutting movement around her neck.
 
 "This..."
 
-Uncomfortable to the bones, Gromov could not get rid of the impression she was doing it on purpose. Meanwhile, Andrey, walking few steps behind, wore a cruel expression of serial killer.
+Uncomfortable to the bones, Gromov could not get rid of the impression she was doing it on purpose. Meanwhile, Andrey, walking few steps behind, wore a cruel expression of a serial killer.
 
-About ten minutes later, they stooped at an ornamental gates of a villa, located in an expensive neigborhood. Samara invited them inside and lead their party into exquisite lounge where an old lady sat on a wheelchair, accompanied by a nurse.
+About ten minutes later, they stooped at an ornamental gates of a villa, located in an expensive neigborhood. Samara invited them inside and lead their party into exquisite hall where an old lady sat on a wheelchair, accompanied by a nurse.
 
 "Auntie, I'm home," Samara said and kissed the lady on forehead. "These gentlemen agreed to help us with the small problem of yours."
 
-"Oh, so nice of you," the lady greeted them entusiatically. "My hubby always told me that the SF officers are the best. Samara has no friends here, and frankly, I would never expect anyone to take care of me at a moment notice. Splendid! I begged the company to come as soon as possible, but they decided to neglect my worsening conditions altogether."
+"Oh, so nice of them," the lady greeted them entusiatically. "My hubby always told me that the SF officers were the best. Samara has no friends here, and frankly, I would never expect anyone to take care of me at a moment notice. Splendid! I begged the company to come as soon as possible, but they decided to neglect my worsening conditions altogether."
 
 "The company?"
 
@@ -112,7 +112,9 @@ Gromov wondered if she was reffering to some shady bussiness, involved in euthan
 
 "Do you want to make it here?" Andrey asked grimly.
 
-"That would be lovely. Curently, I am not able to move elsewhere. It is so cumbersome that I prefer to stay downstairs. I had to ask Samara to walk my sweetheart because I'm stuck in the lounge. Quite disturbing situation I'm afraid. But with you here, I'm sure that all my trouble will vanish at once."
+The old lady patted his hand thankfully.
+
+"That would be lovely, sergeant," she chirped. "Curently, I am not able to move elsewhere. It is so cumbersome that I prefer to stay downstairs. I had to ask Samara to walk my sweetheart because I'm stuck in the lounge. Quite disturbing situation I'm afraid. But with you here, I'm sure that all my trouble will vanish at once."
 
 "Count on us!"
 
@@ -138,7 +140,7 @@ Confused, Gromov realized that Andrey and Samara started to laugh loudly as if t
 
 "You don't seem too sorry to me. May I know what's happening here?"
 
-"This is a secret," retorted Andrey. "You treated me like a mental, Sava. Now it's my turn for a little revenge. You will never know what happened between me and this fine lady. No one will ever tell you. Mystery of the universe stays closed before you very eyes, which will haunt you to your last breath."
+"This is a secret," retorted Andrey. "You treated me like a mental, Sava. Now it's my turn for a little revenge. You will never know what happened between me and this fine lady. No one will ever tell you. Mystery of the universe stays closed before you very eyes, which will haunt you to the last breath."
 
 Gromov sighed and turned to Samara. "If I understand correctly, the wheelchair of your aunt has broken, so you called Andrey. Have you met him before?"
 
