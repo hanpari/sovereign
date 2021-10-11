@@ -6,21 +6,29 @@ Unceremoniously, he threw the accesories away, satisfied with exquisite looks of
 
 "They say one takes no possesion to the other side," Gromov laughed maniacally, returning to his cabin. "But one can always try ... Oh, crap!"
 
-When the brushes were being disposed of, they fought bravely back, and one sharp ink pen had stabbed Gromov's palm.
+When the brushes were been cast out of the box, they fought back, and one sharp ink pen had stabbed Gromov's palm.
 
 He was in the middle of arranging the proprietes for the ongoing drama when he realized the dripping blood had stained the mysterious egg, which he carefully situated in the treasure chest.
 
-Right now, the cabin was a complete mess. Doll's pink handcuffs were laying on the table while the chair was covered by Gromov's finest and only suit, the one he used to attend funerals of fellow soldiers; not all of them had the privilege to have a life backup.
+"Oh mighty ghost of this ship, you won again!" Gromov shouted, smearing the blood over the smooth surface. "But the brave endure!"
 
-He disliked seeing the suit. Not because of those funerals, but because it reminded him of Samara's wedding
+Right now, the cabin was a complete mess. Doll's pink handcuffs were laying on the table while the chair was covered by Gromov's finest and only suit, the one he used to attend funerals of his fellow soldiers.
+
+Gromov disliked the suit. Not because of those funerals, but because it reminded him of Samara's wedding: the bittersweet memory he wanted to bury deep down. Still, the day reappeared again.
+
+With a sudden dizziness, Gromov collapsed, losing all the motivation to continue. "Isn't it stupid? Childish?"
+
+Sleepy and weary, he started to dig the graveyard of the past, forced into an unexpected and unwelcomed introspection ...
 
 "Should I marry Peter?"
 
-On his third vacation day, Samara contacted Gromov and invited him to a small, comfy coffee. They were drinking vine while Gromov sourly desired something more substantial. He knew the talk would be a disaster, but he could not help himself.
+On the third day of his vacation, Samara contacted Gromov and invited him to a small, comfy coffee. They were drinking vine while Gromov sourly desired something more substantial. He knew the talk would be a disaster, but he could not help himself.
 
-Samara wore a casual costume, giving away vibes of a successful businesswoman, while her smiles were charming hearts of men, no matter their age or status.
+Samara wore a casual costume, giving away vibes of a successful businesswoman, while her smiles were charming hearts of men, no matter their age.
 
-"Of course, you should marry Peter," Gromov replied nonchalantly. "He is handsome, nice, and smart. I wonder what makes you think you shouldn't. Nota bene, when you have already been engaged for a couple of months. By the way, do you mind me having, how do you call that, an aperitive? Hey, waiter, bring me double vodka, please."
+Gromov was no exception, dwelling in never-admitted desire for the last three months.
+
+"Of course, you should marry Peter," he replied nonchalantly. "He is handsome, nice, and smart. I wonder what makes you think you shouldn't. Nota bene, when you have already been engaged for a couple of months. By the way, do you mind me having, how do you call that, an aperitive? Hey, waiter, bring me double vodka, please."
 
 "The same here!"
 
@@ -32,29 +40,31 @@ Samara always addressed Andrey by his surname. Originally, Gromov thought she di
 
 "Peter is a fine fellow, my favorite buddy," Gromov insisted lightly. He did not lie, though. In his opinion, Peter Grasov possessed qualities a woman should appreciate in a man: reliable, successful, handsome, and kind-hearted. Compared to Peter, Gromov felt unworthy. "I see no reason why I should not be happy."
 
-"If I am not mistaken, I met you two about a year ago," Samara sighed and put her slender hand on his. "Two brave soldiers who wanted to shoot my dog."
+Samara stayed silent for a while.
+
+"If I am not mistaken, I met you two about a year ago," she sighed and put her slender hand on his. "Two brave soldiers who wanted to shoot my dog."
 
 "It was not your dog. And Andrey did not shoot it."
 
 "A pity because I would not mind. My aunt's dog is an ugly, pitiful creature."
 
-Gromov remembered this very encounter. Then, a strange thing happened. The stage had changed, almost like he was experiencing a flashback in a movie.
+Gromov remembered this very encounter. Then, a strange thing happened. The stage had changed. The cozy coffee transformed into another place.
 
 "Hello? Who? It's you ... No, no problem. The park near the hospital ... OK, bye."
 
-He saw Andrey picking up his cellphone, talking to someone in a hushed voice.
+Gromov saw Andrey picking up his cellphone, talking to someone in a hushed voice.
 
 In the late spring days, they used to play chess in the park, drinking from a bottle labeled as METHANOL FOR EXTERNAL USE ONLY.
 
 After his second backup in a row, Andrey was under observation period, daily visiting the nearby hospital and out of duty. His mental state suffered because the deterioration caused by the backup became more prominent.
 
-Their games of chess were less balanced, and Andrey complained that evaluating five moves ahead made his head hurt - which had never been an issue before. Due to his internal struggle with growing migraines, he tended to get irritated over small things.
+With their chess game less balanced, Andrey complained that evaluating five moves ahead made his head hurt - which had never been an issue before. Due to his internal struggle with growing migraines, he tended to get irritated over small things.
 
-Suddenly, he stood up with an angry expression and said to someone behind Gromov's back: "Hey beauty, the dog of yours seems to be my compatriot in pain. Do you mind if I kill it to shorten its suffering?"
+Before his inevitable defeat, he stood up with an angry expression and said to someone behind Gromov's back: "Hey beauty, the dog of yours seems to be my compatriot in pain. Do you mind if I kill it to shorten its suffering?"
 
 When Gromov turned around, he spotted a dark-haired lady with green eyes, thin lips, and well-defined cheekbones, clad in a black skirt and snow-white shirt, who wore a jacket over her forearm.
 
-On a long leash, she was walking a grayish French bulldog. Wheezing, coughing, and breathing hard, the animal bravely trod the gravel path, with huge eyes almost popping out of shallow sockets. Every day in the flat-faced dog's life had to be a constant purgatory.
+On a long leash, she was walking a grayish French bulldog. Wheezing and coughing, the animal bravely trod the gravel path, with huge eyes almost popping out of shallow sockets. Every day in the flat-faced dog's life had to be a constant purgatory.
 
 The woman appeared taken aback for a while, evaluating both men and their SF uniforms. Finally, as she came to a conclusion they do not pose any threat, she stopped and retorted calmly: "I do not mind at all, dear sir. Make a short work with this pitiful creature of mine. But once you do that, please be sure to collect his dead body and accompany me back to my aunt, who believes that the dog is the only pleasure of her existence."
 
@@ -90,21 +100,21 @@ At least, he wanted to clarify as much. But the moment she came closer and exami
 
 The offered hand had sensitive, slender fingers with long nails. From shoes to a pearl necklace, she emanated an air of cultivated, fashion-aware woman, situated in the upper class. But she lacked the predatory aura often found (at least in Gromov's opinion) among wealthy people.
 
-Even though he did not intend to get involved in Andrey's mess, he hardly resisted the attraction caused by her natural charm. Still, he did not manage to smile back.
+Even though he did not intend to get involved in Andrey's mess, he hardly resisted the attraction caused by her natural charm.
 
-"Nice to meet you," he answered indifferently.
+"Nice to meet you," he answered indifferently, too stiff to smile back.
 
 "Are you a pilot?"
 
 "Right now, I feel more like a warden of a mental asylum," replied Gromov, angrily staring at Andrey. "Please, do excuse him. My friend lives through harsh difficulties, so he deems himself entitled to unforgivable rudeness. But rest assured, we are both harmless."
 
-"Is it so?" She got closer to him and whispered. "With regards to national security, I wonder if I should not be petrified if an SF officer admits he was harmless. Aren't you suppose to be, you know, dangerous or threatening? Like a hyena?"
+"Is it so?" She got closer to him and whispered. "With regards to national security, I wonder if I should not be petrified if an SF officer admitted he was harmless. Aren't you suppose to be, you know, dangerous or threatening? Like a hyena?"
 
-Hyena?
+Hyena? Why hyena?
 
 Gromov did not remember Samara ever talking about hyenas. Moreover, the scene he happened to be in felt somewhat unrealistic. Where the coffee went? Why was Andrey alive? Am I dying while clips of my life wander before my eyes?
 
-But he did not mind. There were two people he ever cared about. He obediently followed suit, inquiring about Samara's circumstances.
+But he did not mind. There were two people he ever cared about. He obediently followed the suit, inquiring about Samara's circumstances.
 
 "I am a new kid on the block," she chatted jovially. "My auntie left me to walk her dog to get acquainted with new people. She explicitly said that men who care about animals could not be bad. Furthermore, she explained to me I should contact SF officers if I get into trouble. She is sooo fond of SF officers. My uncle was one of them. I am pretty sure she will be very happy to meet you before ..."
 
@@ -170,13 +180,13 @@ The place did not match Gromov's memories, having been replaced by a more vivid,
 
 He was already aware of that part since he had lived through this once. Samara had arrived in the city a week ago and gotten stuck at the airport with a load of baggage. Coincidentally, Andrey had been wandering around and offered her help, so they became acquaintances. When the wheelchair had broken down, she called Andrey.
 
-Samara shrugged. "Still so impatient! A girl would think you didn't need to rush things, taking into account the circumstances. We have met again after so many years, Sava, but you made sure to burst the bubble, our happy reunion."
+Samara shrugged. "Still so impatient! A girl would think you didn't need to rush things, taking into account the circumstances. We have met again after so many years, Sava - but you made sure to burst the bubble of our happy reunion."
 
 Gromov found her arguments reasonable. Was it really necessary to investigate the sudden, yet welcome mystery? All the regrets he had, he could face them in this weird dreamland, probing what would have happened if he had given a different answer to her.
 
 But Samara did not look disappointed, wearing a cold, calculating expression.
 
-"What if I let you kill my auntie and her dog today?" she suggested cooly. "Was a mistake to keep the history unaltered, playing my part accordingly and truthfully? What about you, Sava? Even in a wonderland, you keep analyzing the world instead of being thankful for the rare opportunity to meet the only love of your life."
+"What if I let you kill my auntie and her dog today?" she suggested cooly. "Was a mistake to keep the history unaltered, playing my part accordingly and truthfully? What about you, Sava? Can't you just shut up and be thankful for the rare opportunity? Am I not the only love of your life?"
 
 "The only love? Sounds so noble and haughty," Gromov grinned, even though he did not find it funny at all. "I've never admitted this."
 
@@ -184,6 +194,14 @@ But Samara did not look disappointed, wearing a cold, calculating expression.
 
 "The answer stays the same, Samara. You should marry him. You've already done so."
 
-Back then, when Gromov had refused to confess his true feeling, the real Samara did not insisted, letting the matter slip as if it had never happened. Neither of them had crossed the thin line of expressing love explicitly, although they both were aware of their mutual attraction.
+Back then, when Gromov had refused to confess his true feeling, the real Samara did not insisted, letting the matter slip as if it had never happened. Neither of them had crossed the thin line of expressing their affection explicitly.
 
-This dreamland Samara's eyes failed to reveal the tenderness of the real one, lacking the gentle confusion of the original.
+"So be it!"
+
+This dreamland Samara failed to reveal the tenderness of the real one, lacking the gentle confusion of the original. There was something inhuman in her motionless gaze, almost as if the was a sister to Doll, a robot sent from a distant past. A mere talking statue.
+
+Without a warning, her skin changed color, turning into the dark blue. Certain sharpness, alwas present in her features, became more prominent, and the whites of her green eyes blackened.
+
+"Do you recognize me?"
+
+When Gromov was about fifteen, he read a comic book. The book was not special, but
