@@ -16,9 +16,9 @@ Right now, the cabin was a complete mess. Doll's pink handcuffs were laying on t
 
 Gromov disliked the suit. Not because of the funerals, but because it reminded him of Samara's wedding: the bittersweet memory he wanted to bury deep down. Still, the day reappeared again.
 
-With a sudden dizziness, Gromov collapsed, losing all the motivation to continue. "Isn't it stupid? Childish?"
+With a sudden dizziness, Gromov collapsed into the chair, losing all the motivation to continue. "Isn't it stupid? Childish?"
 
-Sleepy and weary, he started to dig the graveyard of the past, forced into an unexpected and unwelcomed introspection ...
+Getting sleepy and weary, he started to dig the graveyard of the past, dragged into an unexpected introspection. It was like immersing into dim waters, experiencing deja vu.
 
 "Should I marry Peter?"
 
@@ -50,7 +50,7 @@ Samara stayed silent for a while.
 
 Gromov remembered this very encounter. Then, a strange thing happened. The stage had changed. The cozy coffee transformed into another place.
 
-"Hello? Who? It's you ... Broken? Well, I'm not a mechanic. I've told you I was a gunner. No, no problem... No, I do not mind ... Nothing important ... Come and get me anytime ... The park near the hospital ... OK, bye."
+"Hello? Who? It's you ... Broken? Hell, I'm not a mechanic... told you I was a gunner. No, no problem... No, I don't mind ... Nothing important ... Come and get me anytime ... The park near the hospital ... OK, bye."
 
 Emerging from shadows, confused Gromov saw Andrey picking up his cellphone, talking to someone in a hushed voice.
 
@@ -62,11 +62,13 @@ With their chess game less balanced, Andrey complained that evaluating five move
 
 Before his inevitable defeat, he stood up with an angry expression and said to someone behind Gromov's back: "Hey beauty, the dog of yours seems to be my compatriot in pain. Do you mind if I kill it to shorten its suffering?"
 
-When Gromov turned around, he spotted a dark-haired lady with green eyes, thin lips, and well-defined cheekbones, clad in a black skirt and snow-white shirt, who wore a jacket over her forearm.
+When Gromov turned around, he spotted a dark-haired lady with green eyes, thin lips, and well-defined cheekbones, clad in a black skirt and snow-white shirt.
 
 On a long leash, she was walking a grayish French bulldog. Wheezing and coughing, the animal bravely trod the gravel path, with huge eyes almost popping out of shallow sockets. Every day in the flat-faced dog's life had to be a constant purgatory.
 
-The woman appeared taken aback for a while, evaluating both men and their SF uniforms. Finally, as she came to a conclusion they do not pose any threat, she stopped and retorted calmly: "I do not mind at all, dear sir. Make a short work with this pitiful creature of mine. But once you do that, please be sure to collect his dead body and accompany me back to my aunt, who believes that the dog is the only pleasure of her existence."
+Evaluating both men and their SF uniforms, the woman appeared taken aback for a while.
+
+Finally, as she came to a conclusion they do not pose any threat, she stopped and retorted calmly: "I do not mind at all, dear sir. Make a short work with this pitiful creature of mine. But once you do that, please be sure to collect his dead body and accompany me back to my aunt, who believes that the dog is the only pleasure of her existence."
 
 With slightly curved lips, she approached Andrey and inspected his uniform: "Sergeant Jerzinski, is it?"
 
@@ -106,7 +108,7 @@ Even though he did not intend to get involved in Andrey's mess, he hardly resist
 
 "Are you a pilot?"
 
-"Right now, I feel more like a warden of a mental asylum," replied Gromov, angrily staring at Andrey. "Please, do excuse him. My friend lives through harsh difficulties, so he deems himself entitled to unforgivable rudeness. But rest assured, we are both harmless."
+"Right now, I feel more like a warden of a mental asylum," replied Gromov, angrily staring at Andrey. "Please, do excuse him. My friend lives through a harsh period, so he deems himself entitled to unforgivable rudeness. But rest assured, we are both harmless."
 
 "Is it so?" She got closer to him and whispered. "With regards to national security, I wonder if I should not be petrified if an SF officer admitted he was harmless. Aren't you suppose to be, you know, dangerous or threatening? Like a hyena?"
 
@@ -156,17 +158,17 @@ Gromov could not take it anymore. After approaching Andrey, he took the hammer f
 
 "Repair the wheelchair?"
 
-Confused, Gromov realized that Andrey and Samara started loudly to laugh as if they were sharing some private joke.
+Confused, Gromov realized that Andrey and Samara started to laugh loudly as if they were sharing some private joke.
 
 "You guys know each other?"
 
-"Well, sort of." Samara wiped off the tears of laughter. "Excuse me, captain. I am sooo sorry."
+"Well, sort of." Samara wiped off the  out of her cheeks. "Excuse me, captain. I am sooo sorry."
 
 "You don't seem too sorry to me. May I know what's happening here?"
 
 "This is a secret," retorted Andrey. "You treated me like a mental, Sava. Now it's my turn for a little revenge. You will never know what happened between this fine lady and me. No one will ever tell you. Mystery of the universe stays closed before your very eyes, which will haunt you to the last breath."
 
-Gromov sighed and turned to Samara. "If I understand correctly, the wheelchair of your aunt has broken, so you called Andrey. Have you met him before?"
+Gromov sighed, turning to Samara. "If I understand correctly, the wheelchair of your aunt has broken, so you called Andrey. Have you met him before?"
 
 Even though Andrey tried to hush Samara vehemently, she disregarded him and led Gromov outside, to a  garden, in which the flowers had begun blossoming.
 
@@ -178,35 +180,37 @@ The place did not match Gromov's memories, having been replaced by a more vivid,
 
 "No need."
 
-He was already aware of that part since he had lived through this once. Samara had arrived in the city a week ago and gotten stuck at the airport with a load of baggage. Coincidentally, Andrey, who had been wandering around, offered her a helpful hand, so they became acquaintances. When the wheelchair had broken down, she called Andrey, thinking he was a SF mechanic.
+Since he had lived through this once, he was already aware of that part. Samara had arrived in the city a week ago and gotten stuck at the airport with a load of baggage.
 
-Samara shrugged. "Still so impatient! A girl would think you didn't need to rush things, taking into account the circumstances. We have met again after so many years, Sava - but you made sure to burst the bubble of our happy reunion."
+Coincidentally, Andrey, who had been wandering around, offered her a helpful hand, so they became acquaintances. When the wheelchair had broken down, she called Andrey, thinking he was a SF mechanic.
 
-Gromov found her arguments reasonable. Was it really necessary to investigate the sudden, yet welcome mystery? All the regrets he had, he could face them in this weird dreamland, probing what would have happened if he had given a different answer to her.
+Samara shrugged. "A girl would think you didn't need to rush things. We have met again after so many years, Sava. Cherish it!"
 
-But Samara did not look disappointed, wearing a cold, calculating expression.
+Gromov found the advice reasonable. Was it really necessary to investigate the mystery? All the regrets he had, he could face them in this weird dreamland, probing what would have happened if he had given a different answer to her.
 
-"What if I let you kill my auntie and her dog today?" she suggested contemplatively. "Was a mistake to keep the history unaltered, playing my part accordingly and truthfully? What about you, Sava? Can't you just shut up and be thankful for the rare opportunity? Am I not the only love of your life?"
+With a cold, calculating expression, Samara did not look disappointed.
 
-"The only love? Sounds so noble and haughty," Gromov grinned, even though he did not find it funny at all. "I've never admitted this."
+"What if I let you kill my auntie and her dog today?" she suggested contemplatively. "Was a mistake to keep the history unaltered? What about you, Sava? Am I not the only love of your life?"
 
-"Neither have she," Samara replied. "I repeat, my Sava. We have both a rare opportunity. So I ask once again. Should she have married Peter?"
+"The only love? Sounds so noble and haughty," Gromov grinned, even though he did not find it funny at all. "I've never admitted anything like this."
+
+"Neither has she," Samara replied. "I repeat, we have both a rare opportunity. So I ask once again. Should've she married Peter?"
 
 Gromov did not miss how she switched pronouns.
 
 "The answer stays the same, my beautiful imposter. She should've married him. She's already done so."
 
-Back then, when Gromov had refused to confess his true feeling, the real Samara did not insisted, letting the matter slip as if it had never happened. Neither of them had crossed the thin line of expressing their affection explicitly.
+Back then, when Gromov had refused to confess to her, the real Samara did not insisted, letting the matter slip as if it had never happened. Neither of them had crossed the thin line of expressing their affection explicitly.
 
 "So be it!"
 
-This dreamland Samara failed to reveal the tenderness of the real one, lacking the gentle confusion of the original. There was something inhuman in her motionless gaze, almost as if the was a sister to Doll, a robot sent from a distant past, a mere talking statue.
+Lacking the gentle confusion of the original, this dreamland Samara failed to reveal the tenderness of the real one. There was something inhuman in her motionless gaze, almost as if the was a sister to Doll, a robot sent from a distant past, a mere talking statue.
 
 Without a warning, her skin changed color, turning into the dark blue. Certain sharpness, alwas present in Samara's features, became more prominent, and the whites of her green eyes blackened.
 
 "Do you recognize me?"
 
-"Recognize you?"
+"Recognize you? Why would I ..."
 
 When Gromov was about fifteen, he bought a comic book, attracted to devil-like female protagonist on its cover. With a romance between a superhero and vilainess, the book was by no means special, but it managed impressed the teenage boy greatly.
 
