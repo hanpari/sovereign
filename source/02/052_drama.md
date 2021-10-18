@@ -8,7 +8,7 @@ Unceremoniously, he threw the accessories away, satisfied with the exquisite loo
 
 When the brushes had been cast out of the box, they fought back, and one sharp ink pen had stabbed Gromov's palm.
 
-He was in the middle of arranging the proprieties for the ongoing drama when he realized the dripping blood had stained the mysterious egg, which he carefully situated in the treasure chest.
+He was in the middle of arranging proprieties for the ongoing drama when he realized the dripping blood had stained the mysterious egg, which he carefully situated in the "treasure" chest.
 
 "Oh mighty ghost of this ship, you won again!" Gromov shouted, smearing the blood over the smooth surface. "But the brave endure!"
 
@@ -20,7 +20,7 @@ With sudden dizziness, Gromov collapsed into the chair, losing all the motivatio
 
 Getting sleepy and weary, he started to dig the graveyard of his past, dragged into an unexpected introspection. It was like immersing into murky waters and experiencing deja vu while falling asleep.
 
-Ten years ago ...
+TEN YEARS AGO
 
 "Should I marry Peter, Sava?"
 
@@ -28,7 +28,7 @@ On the third day of his vacation, Samara contacted Gromov and invited him to a s
 
 Samara wore a casual costume, giving away vibes of a successful businesswoman, while her smiles were charming hearts of men, no matter their age.
 
-Gromov was no exception, dwelling in never-admitted desire for the last three months.
+Gromov was no exception. For the three last months, he dwelt in never-admitted desire, fantasizing about her.
 
 "Of course, you should marry Peter," he replied nonchalantly. "He is handsome, nice, and smart. I wonder what makes you think you shouldn't. Nota bene, when you've already been engaged for a couple of months. By the way, do you mind me having, how do you call that, an aperitive? Hey, waiter, bring me double vodka, please."
 
@@ -46,7 +46,7 @@ But even so, she always insisted on meeting the both of them, treating Andrey li
 
 Samara stayed silent for a while.
 
-"If I am not mistaken, I met you two about a year ago," she sighed, putting her slender hand on his. "Two brave soldiers who wanted to shoot my dog."
+"If I am not mistaken, I met you two about a year ago," she sighed, blatantly changing the topic. "Two brave soldiers who wanted to shoot my dog."
 
 "It was not your dog. And Andrey did not shoot it."
 
@@ -54,9 +54,11 @@ Samara stayed silent for a while.
 
 Gromov remembered this very encounter. Then, a strange thing happened. The stage had changed. The cozy coffee transformed into another place.
 
+ELEVEN YEARS AGO
+
 "Hello? Who? Is it you ... Broken? Hell, I'm not a mechanic... told you I was a gunner. No, no problem... No, I don't mind ... Nothing important ... Come and get me anytime ... The park near the hospital ... OK, bye."
 
-Emerging from shadows, confused Gromov saw Andrey picking up his cellphone, talking to someone in a hushed voice.
+Emerging from blurred shadows, confused Gromov saw Andrey picking up his cellphone, talking to someone in a hushed voice.
 
 In the late spring days, they used to play chess in the park, drinking from a bottle labeled as METHANOL: FOR EXTERNAL USE ONLY.
 
@@ -64,7 +66,7 @@ After his second backup in a row, Andrey was under observation period, daily vis
 
 With their chess game less balanced, Andrey complained that evaluating five moves ahead made his head hurt - which had never been an issue before. Due to his internal struggle with growing migraines, he tended to get irritated over small things.
 
-Before his inevitable defeat, he stood up with an angry expression and said to someone behind Gromov's back: "Hey beauty, the dog of yours seems to be my compatriot in pain. Do you mind if I kill it to shorten its suffering?"
+Before his inevitable defeat, Andrey jumped up with an angry expression and said to someone behind Gromov's back: "Hey beauty, the dog of yours seems to be my compatriot in pain. Do you mind if I kill it to shorten its suffering?"
 
 When Gromov turned around, he spotted a dark-haired lady with green eyes, thin lips, and well-defined cheekbones, clad in a black skirt and snow-white shirt.
 
@@ -124,7 +126,7 @@ But he did not mind. There were two people he ever cared about. He obediently fo
 
 "I am a new kid on the block," she chatted jovially. "My auntie left me to walk her dog to get acquainted with new people. She explicitly said that men who care about animals could not be bad. Furthermore, she explained to me I should contact SF officers if I get into trouble. She is sooo fond of SF officers. My uncle was one of them. I am pretty sure she will be very happy to meet you before ..."
 
-She made a quick cutting movement around her neck.
+She made a quick cutting movement around her neck. " ... you execute the poor thing."
 
 "This..."
 
@@ -158,7 +160,7 @@ Samara nodded and brought a toolbox, from which Andrey took out a huge hammer.
 
 Gromov could not take it anymore. After approaching Andrey, he took the hammer from his hands. "Seriously, even in your current state, you should know better."
 
-"Oh, should I?" Andrey grinned. "So, will your majesty repair the bloody wheelchair? Because I saw you with a screwdriver before, and I wanted to save you from embarrassment. Don't forget these beautiful ladies are watching you."
+"Oh, should I?" Andrey grinned. "So, will Your Majesty repair the bloody wheelchair? Because I saw you with a screwdriver before, and I wanted to save you from embarrassment. Don't forget these beautiful ladies are watching you."
 
 "Repair the wheelchair?"
 
@@ -170,11 +172,15 @@ Confused, Gromov realized that Andrey and Samara started to laugh as if they wer
 
 "You don't seem too sorry to me. May I know what's happening here?"
 
-"This is a secret," retorted Andrey. "You treated me like a mental, Sava. Now it's my turn for a little revenge. You will never know what happened between this fine lady and me. No one will ever tell you. Mystery of the Universe stays closed before your very eyes, which will haunt you to the last breath."
+"This is a secret," retorted Andrey. "You treated me like a mental, Sava."
 
-Gromov sighed, turning to Samara. "If I understand correctly, the wheelchair of your aunt has broken, so you called Andrey. Have you met him before?"
+"If you act as a lunatic, what you can expect?"
 
-Even though Andrey tried to hush Samara vehemently, she disregarded him and led Gromov outside to a  garden where the flowers had begun blossoming.
+"Now it's my turn for a little revenge. You will never know what happened between this fine lady and me. No one will ever tell you. Mystery of the Universe stays closed before your very eyes, which will haunt you to the last breath."
+
+Gromov sighed, turning to Samara. "If I understand correctly, the wheelchair of your aunt was broken, so you called Andrey. Have you met him before?"
+
+Even though Andrey tried to hush Samara vehemently, she disregarded him and led Gromov outside to a garden.
 
 The place did not match Gromov's memories, having been replaced by a more vivid, picturesque corner of a fairyland.
 
@@ -190,9 +196,7 @@ Coincidentally, Andrey, who had been wandering around, offered her a helping han
 
 "A girl would think you didn't need to rush things. We have met again after so many years, Sava. Cherish it!"
 
-Gromov found the advice reasonable. Was it necessary to investigate the mystery? All the regrets he had, he could face them in this weird dreamland, probing what would have happened if he had given a different answer to her.
-
-With a cold, calculating expression, Samara did not look disappointed.
+With a cold, calculating expression, Samara did not look too disappointed.
 
 "What if I let you kill my auntie and her dog today?" she suggested contemplatively. "Was a mistake to keep the history unaltered? What about you, Sava? Am I not the only love of your life?"
 
@@ -204,11 +208,13 @@ Gromov did not miss how she switched pronouns.
 
 "The answer stays the same, my beautiful imposter. She should've married him. She's already done so."
 
-Back then, when Gromov had refused to confess to her, the real Samara did not insist, letting the matter slip as if it had never happened. Neither of them had crossed the thin line of expressing their affection explicitly.
+Back then, when Gromov had refused to confess to her, the real Samara did not insist any further. They pretented the conversation had never happened.
 
 "So be it!"
 
-Lacking the gentle confusion of the original, this dreamland Samara failed to reveal the tenderness of the real one. There was something inhuman in her motionless gaze, almost as if she was a sister to Doll, a robot sent from a distant past, a mere talking statue.
+Lacking the gentle confusion of the original, this dreamland Samara show no signs of being broken-hearted. There was something inhuman in her motionless gaze, almost as if she was a sister to Doll, a robot sent from a distant past.
+
+"Now for something completely different."
 
 Without warning, her skin changed color, turning into dark blue. Certain sharpness, always present in Samara's features, became more prominent, and the whites of her green eyes blackened.
 
@@ -218,19 +224,21 @@ Without warning, her skin changed color, turning into dark blue. Certain sharpne
 
 When Gromov was about fifteen, he bought a comic book, attracted to the devil-like female protagonist on its cover. With a romance between a superhero and villainess, the book was by no means special, but it managed to impress the teenage boy greatly.
 
-During its final scene (after the hero refused to become the king of Hell and lead an invasion to the mortal world, together with her beloved demoness), young Gromov doubted this man's decision.
+In its final scene, the hero refused to lead an invasion to the mortal world.
 
-"If I were him, I would never leave you," he promised the paper demoness with all sincerity of a fifteen-year-old, boiling vessel of roaring hormones.
+Young Gromov disagreed vehemently.
 
-Infatuated by her, he became a fan of the series, only to realize she would never appear again, having only once served the author's purpose.
+"If I were him, I would never leave you," he kept promising his idol with all sincerity of a fifteen-year-old vessel of roaring hormones.
 
-Now, almost thirty years later, he had long forgotten about her. The only soul aware of his "secret love" was Andrey. Since the very day Gromov had shared the torn-out picture with that jerk, Andrey kept calling him His Majesty.
+Infatuated, he became a fan of the series, only to realize she would never appear again, having only once served the author's purpose.
+
+Now, almost thirty years later, he had long forgotten about the paperback. The only soul aware of his "secret love" was Andrey. Since the very day Gromov had shared the torn-out picture with that jerk, Andrey kept calling him His Majesty.
 
 "So you are the Queen of Darkness now?" Gromov inquired, chuckling.
 
 Samara stayed unmoved. "The system is trying to find you an appropriate match," she informed him. "The compatibility rate has reached eighty percent. Motivation sufficient."
 
-"You can say so," Gromov mumbled. With infernal yet attractive features, the demonized Samara aroused him, making his body react in a forgotten manner. "Surprisingly, I'm into blue-skinned monsters with sharp teeth and claws-like nails. No wonder poor Akane has never stood a chance with me."
+"You can say so," Gromov mumbled. With infernal yet attractive features, the demonized Samara aroused him wildly. "Surprisingly enough, I'm into blue-skinned monsters with sharp teeth and claws-like nails. No wonder poor Akane has never stood a chance with me."
 
 There was meaningful silence.
 
@@ -238,18 +246,20 @@ There was meaningful silence.
 
 Falling on his right knee, Gromov proclaimed solemnly: "Would you marry me, Samara the Demoness? For inexplicable reasons, you seem to be my femme fatale. By the way, do you prefer roses or fresh blood of mortals?"
 
-Even though the confession was far from ideal, especially lacking in the romance department, Samara did not mind, her piercing eyes burning with green flames.
+Even though the confession was far from ideal, especially lacking in the romance department, Samara did not mind it, her piercing eyes burning with green flames.
 
 "Sava Gromov," she said gravely. " Do you promise to become my sovereign? Do you promise to give our sons and daughters the inhabited worlds? Do you promise to antagonize the human race?"
+
+With her fading voice, the psychedelic experience became weaker.
 
 Hastily, Gromov grabbed her hand and kissed it.
 
 "Yes, I do. I was ready to do so since I was fifteen."
 
-The bizarre journey on the wonderland neared the end, with the shapes of the captain's cabin replacing the mysterious garden. The scenery changed once again.
+The bizarre journey in the wonderland was abruptly over, with the shapes of the captain's cabin replacing the mysterious garden. The scenery changed once again.
 
 Finally, Gromov woke up.
 
 "This was the finest dream I've ever had," he declared, stretching out. "Welcome to reality, Mr. Sovereign. It's the time to show puny humans how terrible you are. And why not start with an annoying specimen? Even though it is questionable if torturing dear Profesor Zhutra counts as antagonizing the human race. I would call it a charity."
 
-And taking all prepared proprieties, including the ad-hoc made treasure box, egg-shaped artifact, and Dolls' handcuff, Gromov left the cabin.
+Taking all prepared proprieties, including the ad-hoc made treasure box, egg-shaped artifact, and Dolls' handcuffs, Gromov left the cabin.
