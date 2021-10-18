@@ -174,7 +174,7 @@ Confused, Gromov realized that Andrey and Samara started to laugh as if they wer
 
 "This is a secret," retorted Andrey. "You treated me like a mental, Sava."
 
-"If you act as a lunatic, what you can expect?"
+"If you act like a lunatic, what can you expect?"
 
 "Now it's my turn for a little revenge. You will never know what happened between this fine lady and me. No one will ever tell you. Mystery of the Universe stays closed before your very eyes, which will haunt you to the last breath."
 
@@ -198,7 +198,7 @@ Coincidentally, Andrey, who had been wandering around, offered her a helping han
 
 With a cold, calculating expression, Samara did not look too disappointed.
 
-"What if I let you kill my auntie and her dog today?" she suggested contemplatively. "Was a mistake to keep the history unaltered? What about you, Sava? Am I not the only love of your life?"
+"What if I let you kill my auntie and her dog today?" she suggested contemplatively. "Was it a mistake to keep the history unaltered? What about you, Sava? Am I not the only love of your life?"
 
 "The only love? Sounds so noble and haughty," Gromov grinned, even though he did not find it funny at all. "I've never admitted anything like this."
 
@@ -208,11 +208,11 @@ Gromov did not miss how she switched pronouns.
 
 "The answer stays the same, my beautiful imposter. She should've married him. She's already done so."
 
-Back then, when Gromov had refused to confess to her, the real Samara did not insist any further. They pretented the conversation had never happened.
+Back then, when Gromov had refused to confess to her, the real Samara did not insist any further. They pretended the conversation had never happened.
 
 "So be it!"
 
-Lacking the gentle confusion of the original, this dreamland Samara show no signs of being broken-hearted. There was something inhuman in her motionless gaze, almost as if she was a sister to Doll, a robot sent from a distant past.
+Lacking the gentle confusion of the original, this dreamland Samara showed no signs of being broken-hearted. There was something inhuman in her motionless gaze, almost as if she was a sister to Doll, a robot sent from a distant past.
 
 "Now for something completely different."
 
@@ -222,9 +222,11 @@ Without warning, her skin changed color, turning into dark blue. Certain sharpne
 
 "Recognize you? Why would I ... No, wait ... The demoness?"
 
+THIRTY FIVE AGO
+
 When Gromov was about fifteen, he bought a comic book, attracted to the devil-like female protagonist on its cover. With a romance between a superhero and villainess, the book was by no means special, but it managed to impress the teenage boy greatly.
 
-In its final scene, the hero refused to lead an invasion to the mortal world.
+In its final scene, the hero refuses to lead an invasion to the mortal world.
 
 Young Gromov disagreed vehemently.
 
@@ -248,7 +250,7 @@ Falling on his right knee, Gromov proclaimed solemnly: "Would you marry me, Sama
 
 Even though the confession was far from ideal, especially lacking in the romance department, Samara did not mind it, her piercing eyes burning with green flames.
 
-"Sava Gromov," she said gravely. " Do you promise to become my sovereign? Do you promise to give our sons and daughters the inhabited worlds? Do you promise to antagonize the human race?"
+"Sava Gromov," she said gravely. " Do you promise to become my sovereign? Do you promise to give our sons and daughters the inhabited worlds? Do you promise to antagonize the human race for them?"
 
 With her fading voice, the psychedelic experience became weaker.
 
@@ -262,4 +264,4 @@ Finally, Gromov woke up.
 
 "This was the finest dream I've ever had," he declared, stretching out. "Welcome to reality, Mr. Sovereign. It's the time to show puny humans how terrible you are. And why not start with an annoying specimen? Even though it is questionable if torturing dear Profesor Zhutra counts as antagonizing the human race. I would call it a charity."
 
-Taking all prepared proprieties, including the ad-hoc made treasure box, egg-shaped artifact, and Dolls' handcuffs, Gromov left the cabin.
+Putting up the suit and taking all prepared proprieties, including the ad-hoc made treasure box, egg-shaped artifact, and Dolls' handcuffs, Gromov left the cabin.
