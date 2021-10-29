@@ -2,13 +2,13 @@
 
 Nobody likes to be taken for a fool, so Gromov headed to Luciano's closet, from where he took a wooden box full of brushes, dirty rags, and oil paints.
 
-Unceremoniously, he threw the accessories away, satisfied with the exquisite looks of his loot.
+Unceremoniously, he threw the accessories away, satisfied with the exquisite look of his loot.
 
 "They say one takes no possession to the other side," Gromov laughed maniacally, returning to his cabin. "But one can always try ... Oh, crap!"
 
-When the brushes had been cast out of the box, they fought back, and one sharp ink pen had stabbed Gromov's palm.
+When the brushes had been cast out of the box, they fought back, and one sharp ink pen stabbed Gromov's palm.
 
-He was in the middle of arranging proprieties for the ongoing drama when he realized the dripping blood had stained the mysterious egg, which he carefully situated in the "treasure" chest.
+He was in the middle of arranging proprieties for the ongoing drama when he realized the dripping blood stained the mysterious egg, which he carefully situated in the "treasure" chest.
 
 "Oh mighty ghost of this ship, you won again!" Gromov shouted, smearing the blood over the smooth surface. "But the brave endure!"
 
@@ -16,9 +16,9 @@ Right now, the cabin was a complete mess. Doll's pink handcuffs were lying on th
 
 Gromov disliked this reminder. Not because of the funerals, but because it reminded him of Samara's wedding: the bittersweet memory he wanted to bury deep down. Still, the suit reappeared again.
 
-With sudden dizziness, Gromov collapsed into the chair, losing all the motivation to continue. "Isn't it stupid? Childish? If I should have punished all imbeciles in the Universe, I'd work nonstop."
+With sudden dizziness, Gromov collapsed into the chair. "Isn't it stupid? Childish? If I should punished all imbeciles in the Universe, I'd work nonstop."
 
-Getting sleepy and weary, he started to dig the graveyard of his past, dragged into an unexpected introspection. It was like immersing into murky waters and experiencing deja vu while falling asleep.
+Getting sleepy and weary, he started to dig the graveyard of his past, immersing into murky waters of unconsciousness.
 
 TEN YEARS AGO
 
@@ -42,11 +42,11 @@ Samara always addressed Andrey by his surname. Originally, Gromov thought she di
 
 But even so, she always insisted on meeting the both of them, treating Andrey like an old friend - sometimes to such an extent that it made Gromov jealous. She acted more detached during the sparse occasions when she and Gromov were alone.  
 
-"Peter is a fine fellow, my favorite buddy," Gromov insisted lightly. He did not lie, though. In his opinion, Peter Grasov possessed qualities a woman should appreciate in a man: reliable, successful, handsome, and kind-hearted. Compared to Peter, Gromov felt unworthy. "I see no reason why I should not be happy."
+"Peter is a fine fellow, my favorite buddy," Gromov said lightly. He did not lie, though. In his opinion, Peter Grasov possessed qualities a woman should appreciate in a man: reliable, successful, handsome, and kind-hearted. Compared to Peter, Gromov felt unworthy. "I see no reason why I should not be happy."
 
 Samara stayed silent for a while.
 
-"If I am not mistaken, I met you two about a year ago," she sighed, blatantly changing the topic. "Two brave soldiers who wanted to shoot my dog."
+"If I am not mistaken, I met you two about a year ago," she sighed, blatantly changing the subject. "Two brave soldiers who wanted to shoot my dog."
 
 "It was not your dog. And Andrey did not shoot it."
 
@@ -246,7 +246,7 @@ There was meaningful silence.
 
 "I guess I should confess to you now?" Gromov asked in a hoarse voice. In such a precious dream, he wanted to enjoy himself. "After all," he ridiculed himself, "men usually buy sports cars to fulfill their teenage wishes. Marrying a demon woman is a rare occurrence everywhere."
 
-Falling on his right knee, Gromov proclaimed solemnly: "Would you marry me, Samara the Demoness? For inexplicable reasons, you seem to be my femme fatale. By the way, do you prefer roses or fresh blood of mortals?"
+Falling on his right knee, Gromov proclaimed solemnly: "Would you marry me, Samara the Demoness? For inexplicable reasons, you seem to be my femme fatale. Do you prefer roses or fresh blood of mortals?"
 
 Even though the confession was far from ideal, especially lacking in the romance department, Samara did not mind it, her piercing eyes burning with green flames.
 
