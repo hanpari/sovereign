@@ -14,9 +14,9 @@ He was in the middle of arranging proprieties for the ongoing drama when he real
 
 Right now, the cabin was a complete mess. Doll's pink handcuffs were lying on the table while the chair was covered by Gromov's finest and only suit, the one in which he used to attend funerals of his fellow soldiers.
 
-Gromov disliked this reminder. Not because of the funerals, but because it reminded him of Samara's wedding: the bittersweet memory he wanted to bury deep down. Still, the suit reappeared again.
+Gromov disliked it. Not because of the funerals, but because it reminded him of Samara's wedding: the bittersweet memory he wanted to bury deep down. Still, the suit reappeared again.
 
-With sudden dizziness, Gromov collapsed into the chair. "Isn't it stupid? Childish? If I should punished all imbeciles in the Universe, I'd work nonstop."
+With sudden dizziness, Gromov collapsed into the chair, losing all the motivation to continue. "Isn't it stupid? Childish? If I should punish all imbeciles in the Universe, I'd work nonstop."
 
 Getting sleepy and weary, he started to dig the graveyard of his past, immersing into murky waters of unconsciousness.
 
@@ -42,7 +42,7 @@ Samara always addressed Andrey by his surname. Originally, Gromov thought she di
 
 But even so, she always insisted on meeting the both of them, treating Andrey like an old friend - sometimes to such an extent that it made Gromov jealous. She acted more detached during the sparse occasions when she and Gromov were alone.  
 
-"Peter is a fine fellow, my favorite buddy," Gromov said lightly. He did not lie, though. In his opinion, Peter Grasov possessed qualities a woman should appreciate in a man: reliable, successful, handsome, and kind-hearted. Compared to Peter, Gromov felt unworthy. "I see no reason why I should not be happy."
+"Peter is a fine fellow, my favorite buddy," Gromov proclaimed firmly. He did not lie, though. In his opinion, Peter Grasov possessed qualities a woman should appreciate in a man: reliable, successful, handsome, and kind-hearted. Compared to Peter, Gromov felt unworthy. "I see no reason why I should not be happy."
 
 Samara stayed silent for a while.
 
@@ -132,7 +132,7 @@ She made a quick cutting movement around her neck. " ... you execute the poor th
 
 Uncomfortable to the bones, Gromov could not get rid of the impression she was doing it on purpose. Meanwhile, Andrey, walking few steps behind, wore a cruel expression of a serial killer.
 
-About ten minutes later, they stooped at an ornamental gate of a villa located in an expensive neighborhood. Samara invited them inside and led their party into the exquisite hall where an old lady sat on a wheelchair, accompanied by a nurse.
+About ten minutes later, they stopped at an ornamental gate of a villa located in an expensive neighborhood. Samara invited them inside and led their party into the exquisite hall where an old lady sat on a wheelchair, accompanied by a nurse.
 
 "Auntie, I'm home," Samara said and kissed the lady on the forehead. "These gentlemen agreed to help us with the small problem of yours."
 
@@ -222,7 +222,7 @@ Without warning, her skin changed color, turning into dark blue. Certain sharpne
 
 "Recognize you? Why would I ... No, wait ... The demoness?"
 
-THIRTY FIVE AGO
+THIRTY FIVE YEARS AGO
 
 When Gromov was about fifteen, he bought a comic book, attracted to the devil-like female protagonist on its cover. With a romance between a superhero and villainess, the book was by no means special, but it managed to impress the teenage boy greatly.
 
