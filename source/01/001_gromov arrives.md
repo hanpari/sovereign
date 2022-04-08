@@ -12,7 +12,7 @@ From the manner she was unconsciously touching her shoulders, one would deduce h
 
 The man, who had trouble getting out from the tiny car, straightened up and performed some exercise to relieve his sore back.
 
-“Sure,” he replied and observed security measurements with apparent disdain. “They found another way how to waste money. Just look at those cadets with fully charged and unlocked blasters. How adorable! This is exactly the safety we need to have in the middle of the city. Hey you! Come ever here!”
+“Sure,” he replied and observed security measurements with apparent disdain. “They found another way how to waste money. Just look at those cadets with fully charged and unlocked blasters. How adorable! This is exactly the safety we need to have in the middle of the city. Hey you! Come over here!”
 
 The patrol of two young soldiers in bluish uniform hesitated for a moment; then, the authority, with which the captain called them, gave them no other choice.
 
@@ -28,7 +28,7 @@ The patrol of two young soldiers in bluish uniform hesitated for a moment; then,
 
 “Is that so? In that case, be so kind and call the person in charge. I’d like to have a word with him or her.”
 
-The cadet pressed his communication wristband and talked to it. Impatiently, the female lieutenant pulled the sleeve of the captain’s uniform and whispered: “Oh common, don’t be like this, Sava. You ruin all fun being such a j…”
+The cadet pressed his communication wristband and talked to it. Impatiently, the female lieutenant pulled the sleeve of the captain’s uniform and whispered: “Oh come on, don’t be like this, Sava. You ruin all fun being such a j…”
 
 She stopped, reluctant to continue as the word she intended to use lacked proper respect. Between them, a gap of ten years was plain, not to speak the differences in personalities. With her almond-shaped big brown eyes, soft features, and short haircut, she was radiating an impression of a cheerful, easy-going cute kitten, while the captain seemed to be her true opposite, a man who does not like to joke around.
 
