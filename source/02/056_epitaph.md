@@ -6,7 +6,7 @@ With their homes inhabitable, they abandoned the mother planet, leaving it exhau
 
 Surprisingly, they managed not to fall into greater chaos. Granted, the exodus was not without hiccups, yet the space settlers (how we call them) adhered to established rules, avoiding anarchy if possible.
 
-Material and energetical resources, transportation, and communication had priorities above anything else. No effort has been spared to ensure the Saint Four, the basic necessities of space explorations. With practicality in mind, they stopped caring about luxury, pursuing only useful science and knowledge.
+Material and energetical resources, transportation, and communication had priorities above anything else. No effort has been spared to ensure the Sacred Four, the basic necessities of space explorations. With practicality in mind, they stopped caring about luxury, pursuing only useful science and knowledge.
 
 This is why they called their most prosperous planet, The Federation of Advanced Nations (lately The Advanced Nations as we know it today), as if they were ridiculing those who had stayed behind.
 

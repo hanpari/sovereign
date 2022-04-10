@@ -4,7 +4,7 @@ He kept an inquiring face as if Simone brought up a mere juicy gossip. If not fo
 
 Unfortunately, he could not deny Samara's disturbing presence. It was not only the demoness herself, but inexplicable dizziness he started to feel after she had disappeared.
 
-Originally, he blamed the hangover (the vodka he bought back then was a cheap one, after all), but with the passing time, subtle cues began to manifest, indicating a drug than alcohol intoxication rather.
+Originally, he blamed the hangover (the vodka he bought back then was a cheap one, after all), but with the passing time, subtle cues began to manifest, indicating a drug rather than alcohol intoxication.
 
 Does the egg affect my brain, he wondered. The syndromes were akin to an LSD trip with uncomfortable shifts in his perception, in which the walls were becoming transparent, almost glass-like, with endless dark space behind them.
 
