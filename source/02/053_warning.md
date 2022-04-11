@@ -8,9 +8,9 @@ The institutes, such as the Zhutra's University of Enlightened Mind, were offeri
 
 Generally not valuable, their graduates created the loudest part of the society; not only obnoxious but often even harmful.
 
-Now one of them made the stupid mistake of smuggling a dangerous object to the ship of the man who did not excel in being tolerant, mainly if the safety was compromised.
+Now one of them made the stupid mistake of smuggling a dangerous object to the ship of the man who did not excel at being tolerant, mainly if the safety was compromised.
 
-With the interest of humanity at stake, Gromov decided to pay meticulous attention to this accident, burning with sadistic pleasure.
+With the interest of humanity at stake, Gromov decided to pay meticulous attention to the accident, burning with sadistic pleasure.
 
 A priest to perform an exhausting exorcism, he unlocked his guests' door.
 
@@ -18,7 +18,7 @@ Knock! Knock!
 
 "Oh, it's you? You look like attending a funeral."
 
-With the air of noblewoman having unsolicited visitors, Simone welcomed him like the last man she could have expected. "Come in, then."
+With the air of noblewoman having an unsolicited visitor, Simone welcomed him like the last man she could have expected. "Come in, then."
 
 "Not necessary. Here you are."
 
@@ -32,7 +32,7 @@ Gromov gave her a sealed envelop. "Take your access card. You have permission to
 
 Simone tore the envelope open and frowned: "Have you forgotten Khamal? There is only one card inside."
 
-"I would never forget Professured Zhutra," Gromov ensured her. "Don't be ridiculous. In the last hours, he was the only one on my mind. You could say I had a very vivid dream just because of our friend."
+"I'd never forget Professured Zhutra," Gromov ensured her. "Don't be ridiculous. In the last hours, he was the only one on my mind. You could say I had a very vivid dream just because of our friend."
 
 Simone kept frowning. "Why not give the card to Khamal? Do you plan to have him locked till the end of our journey?"
 
@@ -42,7 +42,7 @@ Not exactly dimwitted, Simone immediately realized the meaning of Gromov's bleak
 
 "You ..."
 
-There was something gratifying in such a horrified expression. Under normal circumstances, a man would hurry up to dispel her worries, but now, Gromov only watched how that woman's confidence was crumbling apart.
+There was something gratifying in such a horrified expression. Under normal circumstances, a man would hurry up to dispel her worries, but now, Gromov only watched how the woman's confidence was crumbling apart.
 
 "What do you intend to do with Khamal?"
 
@@ -60,11 +60,11 @@ Gromov decided not to answer. He ordered instead: "Be so kind and call your part
 
 Blocking the door with her hands, Simone valiantly defended the fortress.
 
-"Harm him? I would harm both of you if necessary. But you deserve a chance because Professor Zhutra didn't bother to inform you about his mischief. Ready to sacrifice yourself because of that imbecile?"
+"Harm him? I would harm both of you if necessary. But you deserve a chance since Professor Zhutra didn't bother to inform you about his mischief. Ready to sacrifice yourself because of that imbecile?"
 
 "Let's speak reasonably, captain." Simone was not able to give up on her condescending tone. "Khamal made a mistake ..."
 
-"And he will pay for the mistake. If you ask me, the wager may seem excessive, but if we speak about an artifact worth millions and one pitiful life, in my estimation worth only of ... Anyway, Professor Zhutra lost his game. I'm sure he'll take the news like a man."
+"And he will pay for the mistake. If you ask me, the wager may seem excessive, but if we speak about an artifact worth millions and one pitiful life, in my estimation worth only... Anyway, Professor Zhutra lost his game. I'm sure he'll take the news like a man."
 
 Not convinced, Simone smirked: "Come on, captain. Stop the comedy. Trying to scare us to submission, aren't you? Playing a little mind game? After watching too nasty videos on the Darknet, have you decided to use this godsent opportunity to make one of your own?"
 
@@ -74,11 +74,11 @@ What was the basis of her confidence? The psychological profile, built on Lucian
 
 "Together with the famous sleuth," he sighed, "allow me to correct a few of your assumptions. Since you don't take my word for it, perhaps you can check my documents. Take your time."
 
-After she perused the papers, comprised of Gromov's ID, ship contract, and military honors, she paled as if the official writings were more frightening than the massive man in front of her very eyes.
+After perusing the papers, comprised of Gromov's ID, ship contract, and military honors, she paled as if the official writings were more frightening than the massive man in front of her very eyes.
 
 "So-so you are really an SF officer?"
 
-"Ex-officer, to be precise. No matter how you doubt my qualification, rest assured that two weakened passengers are not enough to take me down, especially if one of them exposes vital organs like a dauntless but a bit clueless heroine. Next time, lower the chin and use arms to protect yourself. You'll survive a second longer, given the discrepancy in our strengths."
+"Ex-officer, to be precise. No matter how you doubt my qualification, rest assured that two weakened passengers are not enough to take me down, especially if one of them exposes vital organs like a dauntless but clueless heroine. Next time, lower your chin and use arms to protect yourself. You'll survive a second longer, given the discrepancy in our strengths."
 
 Even with his limited self-defense training and sparing experience, Gromov was not bluffing. A professional fighter might have beat him up in no time, but Simone Yeuxbleu or Professor Zhutra did not pose a threat.
 
@@ -86,7 +86,7 @@ Not so smug anymore, but still not convinced Gromov had been serious, Simone tri
 
 "Look, captain, we all make mistakes," she said. "OK, Khamal broke your rules, no excuses, but you should not, I repeat, you should not be so harsh. No one was hurt so far."
 
-"And no one will. Trust me on this, Miss Yeuxbleu. I am very capable of preventing similar accidents. Now be a good girl and call Professor Zhutra for me. Do it in a very casual way. I don't want to hunt a panicking birdie."
+"And no one will. Trust me on this, Miss Yeuxbleu. I am very capable of preventing similar accidents. Now be a good girl and call Professor Zhutra. Do it in a very casual way. I don't want to hunt a panicking birdie."
 
 "I cannot! I cannot! If I don't warn him, how am I going to live ever after?"
 
