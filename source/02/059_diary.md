@@ -6,7 +6,7 @@ But the safety belt seemed to crack, threatening Gromov to become one of the mon
 
 Not only had Doll's transformation surprised him, but her acknowledgment of Samara's existence counted like confirmation by an independent observer.
 
-Since never before was the Plantarian virus reported to infect or affect artificial beings,  Gromov concluded that the power raiding his ship was something else.
+Since never before was the Plantarian virus reported to infect or affect artificial beings, Gromov concluded that the power raiding his ship was something else.
 
 Just thinking of it gave him a headache. Had he accepted the existence of The Emperor In The Mask, an unrivaled genius, who had allegedly prepared a background for steering the future of humankind, then he could explain everything in a simplistic fashion. The evil guy did it!
 
@@ -52,7 +52,7 @@ Of course, he had no intention to test Doll's loyalty this way. The question was
 
 "With you? What do you mean, my dearest father?"
 
-"How many do we have people on this ship?"
+"How many people do we have on this ship?"
 
 "Three."
 
@@ -78,9 +78,9 @@ To Gromov's astonishment, Doll chuckled: "What a nonsensical notion! If people w
 
 "Is it so?"
 
-To Gromov's taste, the debate turned extremely metaphysical. Had he understood what Doll implied, he had an entity, comfortably wrapped into human flesh, whereas Doll had dwelled in the artificial body. The only logical conclusion was that Samara the Demoness remained in her ghostly form because she had not possessed a materialized vessel yet.
+To Gromov's taste, the debate turned extremely metaphysical. If he understood what Doll implied, he had become an transcendental entity, comfortably wrapped into human flesh, whereas Doll had dwelled in the artificial body. The only logical conclusion was that Samara the Demoness remained in her ghostly form because she had not possessed a materialized vessel yet.
 
-"Whatever," he said. "The puny humans are not allowed to know our secret. So I forbid you to call me your dearest father in public - unless you want me to die of shame, and if possible, be sure to act as a good android."
+"Whatever," he said. "The puny humans are not allowed to know our secret. So I forbid you to call me your dearest father in public - unless you want me to die of shame - and if possible, be sure to act as an obedient android."
 
 "Of course," Doll nodded graciously. "I would never allow my carelessness to harm our cause. Use me at your consideration, my dearest father."
 
@@ -90,7 +90,7 @@ At the moment when Gromov wanted to remind Doll to avoid such a misleading remar
 
 "What is it?"
 
-Someone knocked. Unconsciously, Gromov inspected the closed door. Once he focused, the solid material became transparent and revealed Simone Yeuxbleu, standing behind it with a tablet in her hands.
+Someone knocked. Subconsciously, Gromov inspected the closed door. Once he focused, the solid material became transparent and revealed Simone Yeuxbleu, standing behind it with a tablet in her hands.
 
 "Come in!"
 
@@ -122,7 +122,7 @@ Gromov nodded.
 
 "Why not jeopardize her privacy once again," he sighed. "But I doubt you can do it, Doll."
 
-Without standing up from the armchair, the android pointed her finger at the tablet and connected to it. The screen blackened, switched to the command line, and the device heated up.
+Without standing up from the armchair, the android pointed her finger at the tablet and connected to the tablet. The screen blackened, switched to the command line, and the device heated up.
 
 "Primitive security," she said after a few seconds. "The password is 'My favorite color is turquoise!' Nonetheless, I must warn you of that woman."
 
@@ -132,12 +132,12 @@ Without standing up from the armchair, the android pointed her finger at the tab
 
 "Really?"
 
-"Without a doubt. In fact, her diary indicates it was her who destroyed Professor Zhutra's ship. She was disappointed when you let him go. Furthermore, she planned to seduce you to get access to your ship. Then, she would destroy the remaining artifact and kill all witnesses afterward."
+"Without a doubt. In fact, her diary indicates it was her who destroyed Professor Zhutra's ship. She was disappointed when you let him go. Furthermore, she planned to seduce you to get access to your ship. Then, she would destroy the remaining artifact and kill all witnesses."
 
 "Eh?"
 
 "Funny, isn't it?" Doll smiled gently. "Humans are delusional. How could she ever think that her lacking, stinking and disease-ridden body may seduce my dearest father? She should be honored if you let her stand in your proximity, that repulsive, malformed scoundrel!"
 
-Finally, Gromov came to his senses: "Wait for a second, my precious daughter! What have you just said? I mean the part of the killing, not your assessment of poor and so unattractive Simone. Why would she have done something so outrageous? For what reason?"
+Finally, Gromov came to his senses: "Wait for a second, my precious daughter! What have you just said? I mean the part about the killing, not your assessment of poor and so unattractive Simone. Why would she have done something so outrageous? For what reason?"
 
-"Since she loves to use indirect and obfuscated expressions when she describes her unlawful goals, I am not clear on that. Perhaps she is mentally handicapped. Or perhaps because she is an undercover agent of the organization that called itself DOZOR? It seems to be the case. Can it be a sufficient reason, my dearest father?"
+"Since she loves to use indirect and obfuscated wording when she describes her unlawful goals, I am not clear on that. Perhaps she is mentally handicapped. Or perhaps because she is an undercover agent of the organization that called itself DOZOR? It seems to be the case. Can it be a sufficient reason, my dearest father?"
