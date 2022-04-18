@@ -10,10 +10,7 @@ Sovereign by Pavel Morava
    :maxdepth: 2
    :caption: The battle over city
 
-   01/0019_man_of_steel
    01/001_gromov arrives
-   01/002_andrey
-   01/003_about_steiner
    01/004_question
    01/005_socializing
    01/006_handshake
@@ -29,6 +26,7 @@ Sovereign by Pavel Morava
    01/017_chaos
    01/018_in_charge
    01/018a_gathering
+   01/019_man_of_steel
    01/020a_choosing
    01/020b_probing
    01/021_ritual
@@ -64,4 +62,17 @@ Sovereign by Pavel Morava
    02/050_extraction
    02/051_egg
    02/052_drama
+   02/053_warning
+   02/054_treasure_chest
+   02/055_the_emperor_in_the_mask
+   02/056_epitaph
+   02/057_doubts
+   02/058_probability
+   02/059_diary
+   
 
+.. toctree::
+   :caption: Appendix
+
+   appendix/list_of_characters
+   appendix/dictionary

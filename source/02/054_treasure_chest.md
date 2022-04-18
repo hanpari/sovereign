@@ -156,7 +156,7 @@ This time, Zhutra did not hesitate. "Yes, I am. I was waiting hours here, and no
 
 "Of course."
 
-"You are strangely inconsistent in your thinking process. The space merchants are not to be trusted, remember? Anyway, you're running out of time, so stop looking for reassurance. If I wanted you dead, I'd never put my back into saving you and Miss Yeubleux. Now the truth, professor."
+"You are strangely inconsistent in your thinking process. The space merchants are not to be trusted, remember? Anyway, you're running out of time, so stop looking for reassurance. If I wanted you dead, I'd never put my back into saving you and Miss Yeuxbleu. Now the truth, professor."
 
 With no guarantee given, Zhutra licked his lips and foreshadowed: "I'll make it quick, Captain Gromov. But you should understand the real story may sound a bit vague to you. I cannot provide any evidence."
 

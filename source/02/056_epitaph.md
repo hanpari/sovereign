@@ -56,7 +56,7 @@ After reading so far, Gromov learned only a longer version of what Khamal Zhutra
 
 "Are you alright, Captain Gromov?"
 
-Infuriated and drunken, Gromov almost crashed into Simone Yeubleux, who was leaving the kitchen with a huge glass of something that resembled roadkill mixed with green salad and blueberries.
+Infuriated and drunken, Gromov almost crashed into Simone Yeuxbleu, who was leaving the kitchen with a huge glass of something that resembled roadkill mixed with green salad and blueberries.
 
 She was dressed in elastic sportswear, comprised of blue t-shirts and leggings. Both were tight and quite revealing, so Gromov could not help picturing her wide rounded breasts.
 

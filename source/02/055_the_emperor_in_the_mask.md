@@ -84,7 +84,7 @@ Still frozen in her yoga pose, Simone laughed. "I remember someone who claimed t
 
 "Missing any integrity, aren't you? Once DOZOR appears, you'll sing a different tune, you son of ..."
 
-While his guests were bickering, Gromov inspected the borrowed book. "Hiding uncomfortable truths? Whoever they are, they did a poor job. This is a second edition. Perhaps they are not so dangerous, Miss Yeubleux."
+While his guests were bickering, Gromov inspected the borrowed book. "Hiding uncomfortable truths? Whoever they are, they did a poor job. This is a second edition. Perhaps they are not so dangerous, Miss Yeuxbleu."
 
 "Sure," snapped Simone. "You men stick together, ganging up on women all the time."
 

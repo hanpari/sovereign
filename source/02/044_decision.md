@@ -20,7 +20,7 @@ After the system notification, the artificial woman raised her head. “Is Doll 
 
 “You're welcome."
 
-"If you want to make Doll even happier, what about buying her new underwear? Would you like to check the latest offer from SexySexyLadies?"
+"If you want to make Doll even happier, what about buying her new underwear? Would you like to check the latest offer from SEXYSEXYLADIES?"
 
 Suddenly, the Doll's voice seemed to belong to a different woman; it deepened and wore promising undertones.
 
@@ -30,11 +30,11 @@ The lady hidden in Doll's body continued: "Do you wish to stop receiving promoti
 
 "Yes."
 
-"SexySexyLadies respect your wishes. Do you agree to send your personal anonymized data to our commercial department?"
+"SEXYSEXYLADIES respect your wishes. Do you agree to send your personal anonymized data to our commercial department?"
 
 Gromov glared at her in utter disbelief. "Do you track your clients' activities? With sex toys?" he asked.
 
-"Yes, it helps to improve SexySexyLadies' services. SexySexyLadies' mission is to deliver top-notch products to our customers. Do not worry, though; your data are properly anonymized, Captain Gromov."
+"Yes, it helps to improve SEXYSEXYLADIES' services. SEXYSEXYLADIES' mission is to deliver top-notch products to our customers. Do not worry, though; your data are properly anonymized, Captain Gromov."
 
 "That's reassuring. Still no, leave my data be."
 
@@ -144,7 +144,7 @@ For the first time in Gromov’s life, this was when he had encountered someone 
 
 After a while, the AI concluded the silence had been awkward.
 
-“Captain Gromov?” Doll spoke up. “You were staring at me for two minutes and twenty-one seconds. If you find my face lacking, what about buying a new model from SexySexyLadies?”
+“Captain Gromov?” Doll spoke up. “You were staring at me for two minutes and twenty-one seconds. If you find my face lacking, what about buying a new model from SEXYSEXYLADIES?”
 
 “I thought I forbid you to advertise stuff.”
 
@@ -178,7 +178,7 @@ In a few moments, she conquered complete Gromov’s online existence, discarding
 
 For an unknown reason, Uriah took a pillow from under his head and covered his face, his shoulders shaking violently.
 
-Gromov ignored him. “You have my permission to send them the latest offer from SexySexyLadies.”
+Gromov ignored him. “You have my permission to send them the latest offer from SEXYSEXYLADIES.”
 
 “Would you like to create a referral link, Captain Gromov? You will get a provision from each closed transaction.”
 
