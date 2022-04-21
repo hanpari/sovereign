@@ -90,7 +90,7 @@ While his guests were bickering, Gromov inspected the borrowed book. "Hiding unc
 
 "Do we? If anything, I thought you were the smarter one out of your duo. Try not to fail my trust."
 
-Simone looked half-pleased and half-annoyed. "Oh, did you? What about being less smug, then? Do you care to have my opinion on the whole matter? My dissertation covered the Emperor in the mask to a great extent. I concluded the calamity he brought on himself was directly related to his suppressed homosexuality."
+Simone looked half-pleased and half-annoyed. "Oh, did you? What about being less smug, then? Do you care to have my opinion on the whole matter? My dissertation covered The Emperor In The Mask to a great extent. I concluded the calamity he brought on himself was directly related to his suppressed homosexuality."
 
 "Suppressed homosexuality? This is my favorite part," Gromov smirked. "We can chat later on that topic. Your insight in psychology never ceases to amaze me."
 

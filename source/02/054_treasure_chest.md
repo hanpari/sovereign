@@ -170,7 +170,7 @@ With no guarantee given, Zhutra licked his lips and foreshadowed: "I'll make it 
 
 "Why?"
 
-"Because of the Emperor in the mask."
+"Because of The Emperor In The Mask."
 
 "Never heard of that guy. Who is he?"
 
@@ -193,7 +193,7 @@ Apparently, Zhutra felt that his words might not be convincing enough. To his re
 
 Gromov preferred to sound rude than to admit he saw an inexplicable apparition, especially if Zhutra showed no sign of being aware of that woman.
 
-"In that case, it is easy. I have been studying the Emperor in the mask for years. People of your kind would think he was a myth, but we scientists who have left all our doors open are more susceptible to learning the hidden facts. We found chapters erased from the official history, and we started to ask why!
+"In that case, it is easy. I have been studying The Emperor In The Mask for years. People of your kind would think he was a myth, but we scientists who have left all our doors open are more susceptible to learning the hidden facts. We found chapters erased from the official history, and we started to ask why!
 Of course, my so-called rational colleagues would teach their students about destroyed archives, deleted records, pits of war, and so on.
 But I was able to recognize the pattern. After assembling all pieces of puzzles together, our University came to a shocking revelation. We were lied to, Captain Gromov! They lied to us all the time."
 

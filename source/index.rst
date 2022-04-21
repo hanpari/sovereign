@@ -69,6 +69,7 @@ Sovereign by Pavel Morava
    02/057_doubts
    02/058_probability
    02/059_diary
+   02/060_camp
    
 
 .. toctree::

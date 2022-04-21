@@ -22,7 +22,7 @@ The Emperor In The Mask understood the situation from the beginning. The moment 
 
 For instance, the intelligence agencies convinced themselves they had developed a reliable methodology to track the ICD Empire by monitoring its supply lines.
 
-With almost twenty known locations in their databases, the political decision was to commence simultaneous attacks aimed at penetration or destruction of mere five bases. Bene note, the governments hesitated to approve more massive engagement in the fear the supply of ICDs would be interrupted or feared denial of services would be enacted over their homeworlds. The plan expected the Emperor In The Mask to yield and begin cooperating once he saw the resolve of the "police forces."
+With almost twenty known locations in their databases, the political decision was to commence simultaneous attacks aimed at penetration or destruction of mere five bases. Bene note, the governments hesitated to approve more massive engagement in the fear the supply of ICDs would be interrupted or feared denial of services would be enacted over their homeworlds. The plan expected The Emperor In The Mask to yield and begin cooperating once he saw the resolve of the "police forces."
 
 In hindsight, we can only laugh at the naivety of the politicians and generals who discussed the whole issue. They thought they were dealing with a businessman who went rogue, who greedily insisted on a monopoly to make a profit. No single human suspected him of having more ambitious goals.
 
