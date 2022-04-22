@@ -67,4 +67,4 @@ Gromov wished he had never drank the liquor, made the stupid joke, and met this 
 
 "Nevermind!" he blurted, noticing she was wearing the guest tag.
 
-"Annabela Corbin, isn't it? The Ministry of Defense, I guess. This should do. I'll write you the letter. Enjoy the evening, Mrs. Corbin."
+"Annabelle Corbin, isn't it? The Ministry of Defense, I guess. This should do. I'll write you the letter. Enjoy the evening, Mrs. Corbin."

@@ -1,36 +1,34 @@
-# Gromov arrives
+# Gromov přichází
 
-The taxi car arrived in front of hotel Belgrava, a tall building composed of glass and aluminum panels.
+Před vysokou budovu, postavenou ze skleněných a hliníkových panelů, hotelu Belgrava přijel taxík. Kolem budovy stály rozložitelné zátarasy a mezi nimi procházely vojenské hlídky.  
 
-Detachable plates, labeled as a Space Forces property, fenced the hotel while military patrols were walking by, guarding the opening.
+Z auta vystoupily dva lidé, muž a žena. Oba dva byly oblečeni do modrých uniform, které napovídaly, že jde o piloty Vesmírných sil. Muž měl na výložkách čtyři kapitánské trojúhelníky, zatímco žena pouze jeden.
 
-From the car, two persons emerged, a man and a woman. Both of them wore blue uniforms, indicating they belonged to Space Forces pilots; the man sported captain distinction, the four golden stars, while the woman had only one of them.
+Z bezděčných doteků a pozornosti, které podporučice svým výložkám věnovala, se dalo soudit, že ji povýšili nedávno. Své okolí si prohlížela s patřičným potěšením, zjevně hrdá na to, kde se nachází.
 
-From the manner she was unconsciously touching her shoulders, one would deduce her promotion had occurred recently. She watched her surroundings with vivid expression, obviously enjoying herself.
+"Konečně," vykřikla. "Zasloužený luxus!"
 
-"Finally," she exclaimed. "The well-deserved luxury awaits!"
+Muž, který měl potíže se dostat z mělého vozu, se napřímil a protáhl si ztuhlé svaly.
 
-The man, who had trouble getting out of the tiny car, straightened up and performed some exercise to relieve his sore back.
+"Jistě," odpověděl a rozhlížel se vyloženě znechuceně. "Zase našli další způsob jak plýtvat penězi. Jen se podívejme na ty roztomilé kadety s nabitými a odjištěnými blastry. Přesně ten druh bezpečí, který potřebujeme v civilním městě. Hej, vy tam! Pojďte sem!"
 
-"Sure," he replied and observed security measurements with apparent disdain. "They found another way how to waste money. Just look at those cadets with fully charged and unlocked blasters. How adorable! This is exactly the safety we need to have in the middle of the city. Hey you! Come over here!"
+Hlídka dvou kadetů v namodralých uniformách zaváhala. Nakonec se ale neodvážila vzdorovat autoritě, s jakou si je kapitán předvolal.
 
-The patrol of two young soldiers in bluish uniforms hesitated for a moment; then, the authority with which the captain called gave them no other choice.
+"Pane?"
 
-"Sir?"
+"Taková otázka, hrdinové. Kdo vám dovolil odjistit vaše zatracené zbraně? Ještě k tomu na veřejnosti?"
 
-"Just a question, cadets. Who permitted unlocking your bloody weapons in public?"
+"Hlídkujeme, pane."
 
-"We are patrolling, sir."
+"Jistě, a nepřítel číhá tamhle v křoví. Chcete si odstřelit nohu - nebo hůř? Zajistěte to a přestaňte blbnout."
 
-"With the enemy nearby, I guess. Do you want to blow your legs away? Just lock it up, and don't mess around."
+"Promiňte, pane. Ve vší úctě, vy nám nemůžete dávat rozkazy."
 
-"Excuse me, sir. With all respect, but you are in no position to give us orders."
+"Výborně. V tom případě mi zavolejte toho, kdo to tady má na starost. Rád si s ním nebo s ní popovídám."
 
-"Is that so? In that case, be so kind and call the person in charge. I'd like to have a word with him or her."
+Jeden z kadetů stiskl komunikační náramek a chvíli do něj hovořil. Žena zatahala kapitána netrpělivě za rukáv a zašeptala: "Ale prosím, Savo. Zkazíš veškerou legraci, když se budeš chovat jako pito-" 
 
-The cadet pressed his communication wristband and talked to it. Impatiently, the female lieutenant pulled the sleeve of the captain's uniform and whispered: "Oh, come on, don't be like this, Sava. You ruin all fun being such a j-"
-
-She stopped, reluctant to continue as the word she intended to use lacked proper respect. Between them, a gap of ten years was plain, not to speak the differences in personalities. With her almond-shaped big brown eyes, soft features, and short haircut, she was radiating an impression of a cheerful, easy-going cute kitten, while the captain seemed to be her true opposite, a man who does not like to joke around.
+Tady se zarazila, nejspíš aby se vyhnula slovu, které postrádalo patřičnou úctu k nadřízenému. Mezi nim byl rozdíl nejméně deseti let, nemluvě o rozdílu v jejich osobnostech. Se svýma mandlovýma očima, něžnými rysy, a krátkým vojenským sestřihem, žena působila jako veselé a hravé kotě, kdežto kapitán se zdál být její pravým opakem - mužem, se kterým si není radno zahrávat.
 
 Having strict green eyes narrowed in constant disapproval, the captain's demeanor possessed an air of natural dignity and importance. He was used to giving orders, so young cadets who opposed him were rather praiseworthy.
 
