@@ -69,7 +69,10 @@ It took days before Dwarfus understood the hidden hints I left in my presentatio
 
 ...
 
-They seem to suspect something. I got very clear instructions. If the base belongs to Him, report findings and take care of the crew. They sent a bag full of explosives. My safe return? Probably useless to ask about it. We have to sacrifice for our Thing. Like I care.
+The organization seems to suspect something. I got very clear instructions. If the base belongs to Him, report findings and take care of the crew. They sent a bag full of explosives. My safe return? Probably useless to ask about it. We have to sacrifice for our Thing. Like I care! Too late to cry over spilt milk.
 
 ...
 
+Whinies, Pities, and Talkies are absolutely useless. Nothing new, actually, but they keep me distracted. I cannot make them shut up. Even Dwarfus is nervous around them.
+
+...
