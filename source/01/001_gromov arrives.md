@@ -20,15 +20,19 @@ Hlídka dvou kadetů v namodralých uniformách zaváhala. Nakonec se ale neodv�
 
 "Hlídkujeme, pane."
 
-"Jistě, a nepřítel číhá tamhle v křoví. Chcete si odstřelit nohu - nebo hůř? Zajistěte to a přestaňte blbnout."
+"Jistě, a nepřítel číhá tamhle v křoví. Chcete si odstřelit nohu nebo hůř? Zajistěte to a přestaňte blbnout."
 
 "Promiňte, pane. Ve vší úctě, vy nám nemůžete dávat rozkazy."
 
 "Výborně. V tom případě mi zavolejte toho, kdo to tady má na starost. Rád si s ním nebo s ní popovídám."
 
-Jeden z kadetů stiskl komunikační náramek a chvíli do něj hovořil. Žena zatahala kapitána netrpělivě za rukáv a zašeptala: "Ale prosím, Savo. Zkazíš veškerou legraci, když se budeš chovat jako pito-" 
+Jeden z kadetů stiskl komunikační náramek a chvíli do něj hovořil. Žena zatahala kapitána netrpělivě za rukáv a zašeptala: "Ale prosím, Savo. Zkazíš veškerou legraci, když se budeš chovat jako pito-"
 
 Tady se zarazila, nejspíš aby se vyhnula slovu, které postrádalo patřičnou úctu k nadřízenému. Mezi nim byl rozdíl nejméně deseti let, nemluvě o rozdílu v jejich osobnostech. Se svýma mandlovýma očima, něžnými rysy, a krátkým vojenským sestřihem, žena působila jako veselé a hravé kotě, kdežto kapitán se zdál být její pravým opakem - mužem, se kterým si není radno zahrávat.
+
+Se zelenýma a věčně nespokojenýma očima, kapitán vyzařoval přirozenou důstojnost a důležitost. Byl zvyklý vydávat rozkazy, takže kadeti, kterří se odvážili odporovat, zasloužili ocenění za odvahu.
+
+Po několika minutách se
 
 Having strict green eyes narrowed in constant disapproval, the captain's demeanor possessed an air of natural dignity and importance. He was used to giving orders, so young cadets who opposed him were rather praiseworthy.
 
@@ -66,7 +70,7 @@ Akane blushed and pointed at the red number under the left shoulder.
 
 The sergeant showed the red digit on his uniform. "All my three under Sava as a wing commander. I don't blame him, though. It was doing of that idiot Steiner. This glory-seeking moron thinks the more we die, the better soldiers we are. After the third one, I could not take it anymore. Sava helped me to transfer here. A safe place if you ask me. "
 
-"Was it bad?" 
+"Was it bad?"
 
 "Absolutely. With each death, it has become worse. Not remembering names and friends, I had problems with proper reasoning. I couldn't even recognize my old mother. They needed to introduce me to her, for God's sake."
 
@@ -76,17 +80,15 @@ The sergeant showed the red digit on his uniform. "All my three under Sava as a 
 
 "Hey, I'm trying to win some sympathy here. Never mind. I was never the brightest."
 
-The sergeant said his line with a cheerful expression, and Gromov shook his head pitifully. He did not enjoy the way he was speaking to his old friend. Three backups in the row took a significant toll on Andrey. 
+The sergeant said his line with a cheerful expression, and Gromov shook his head pitifully. He did not enjoy the way he was speaking to his old friend. Three backups in the row took a significant toll on Andrey.
 
 The recovering technology was said to damage about ten percent of the original personality, but Gromov believed the result affected more than just a memory.
-
 
 After the series of revivals, Andrey gradually turned into a far cry from the man he used to be. It was kinder to pretend there were no visible changes than to confirm his level of mental deterioration to him.
 
 Gromov knew that Andrey had to be on pills that stimulated his brain; without drugs, the ghola's brain synapses stayed weaker with every iteration.
 
 [Pavel Morava's remark: The term "ghola" was used in Frank Herbert's Dune to describe a clone with memories of the original person.]
-
 
 "What was the problem with my boys, anyway?" Sergeant asked, waving the hand toward two cadets. They waited there silently.
 
@@ -132,7 +134,7 @@ Andrey rolled his eyes. "That's about right. You guys put the safety on. We don'
 
 "You wish. Colonel's retarded, died five times, and became completely nuts."
 
-Andrey began stuttering, trying to persuade them. 
+Andrey began stuttering, trying to persuade them.
 
 He died three times when ordered to go suicidal, which was the tactic of last resort under Q-Field impact. From a distorted point of view, commonly adopted in Space Forces, they shall hail Sergeant Jerzinski for the ultimate display of bravery. Perhaps he was missing the glorious old times as well.
 
@@ -143,4 +145,3 @@ Pilots and gunners, including technical personnel, glorified such deaths as a ba
 "Not exactly," admitted Andrey. "Right now, two cruiser-class spaceships are relocating to provide us the area protection."
 
 "That's unsatisfactory," said Gromov.
-
