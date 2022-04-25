@@ -1,5 +1,19 @@
 # Mission
 
+Flabberghasted, Gromov raised from the chair and got himself a glass of water.
+
+"Can I even believe it?" he asked aloud. "If she was a special agent of some secret murderous organization, shouldn't I be able to find out?"
+
+"You shouldn't, my dearest father," Doll chimed in. "This is the point of being an undercover agent I presume."
+
+"Thank you, Doll. Now I know how poor Andrey felt when the backups clouded his judgment. You are right, of course. But still, I had no idea. Is there any chance she made things up? What if her diary is fiction, an alternative history of her unsatisfied self? What if she wants to be an unbeatable heroine?"
+
+Doll smiled gently.
+
+"What is it now?" Gromov barked. "Don't
+
+I’m a real-life student again. The nightmare is over. The organization pays my bills. It is funny. I am an official employee of non-governmental organization Children of Democracy. I don’t even know where they have the office here, but they keep sending decent salary my way. I checked the contract, and I am a consultant. Funny, so funny.
+
 ...
 
 Now I'm a student. The lady in office had all paperwork ready. One would expect someone more eerie at The University that teaches metaphysics, but sadly enough, the personnel here is recruited from ordinary people. Still, there was a slogan above her head.
@@ -39,7 +53,7 @@ No idea if They pulled the strings but my diploma work got an award. Seriously?
 
 ...
 
-Besties No.1 got a job. She's gonna be an official at the Ministry of Agriculture. She has no qualification. Her only concern? The color of her suit for the first day at the office. Besties No.2 is jelous.
+Besties No.1 got a job. She's gonna be an official at the Ministry of Agriculture. She has no qualification. Her only concern? The color of her suit for the first day at the office. Besties No.2 is jealous.
 
 ...
 
@@ -47,7 +61,7 @@ A mission for me out of blue. The order? Become a PhD student of certain proffes
 
 ...
 
-The mission accomplished. Professor Dwarfus so happy with me. After getting aquinted with the other studens, I'm can guess why I am qualified. None is taller than him. All are females and frankly, they are more like a harem.
+Professor Dwarfus so happy with me. After getting aquinted with the other studens, I can guess why he doesn't object me being in his team. All are females and frankly, they are more like a harem. None is taller than him.
 
 ...
 
@@ -57,11 +71,11 @@ Thanks to that, I got the access to sources I've never seen before. I thought th
 
 ...
 
-Good for Dwarfus. I'm reporting his research to the organization he thinks that doesn't exist. I like my assignment. Trying constantly to downplay what we have stumbled upon. Otherwise, my next goal would be to bury Dwarfus. The stuff is heavy. And he talks and writes too much. He is so proud about his name in the Brown's book. I guess Brown got out of Their hook just because his book is complete jibberish.
+Surprise for Dwarfus. I'm reporting his research to the organization he thinks that doesn't exist. I like my assignment. Trying constantly to downplay what we have stumbled upon. Otherwise, my next goal would be to bury Dwarfus. The stuff is heavy. And he talks and writes too much. He is so proud about his name in the Brown's book. I guess Brown got out of Their hook just because his book is complete jibberish.
 
 ...
 
-Huge discovery! It's too massive! I believe I calculated  position of one forgotten Space Station. Perhaps the main one with the gift. How to proceed? Should I report it?
+Huge discovery! It's too massive! I believe I calculated  position of one forgotten Space Station. Perhaps the main one with the Gift. How to proceed? Should I report it?
 
 ...
 
@@ -76,3 +90,9 @@ The organization seems to suspect something. I got very clear instructions. If t
 Whinies, Pities, and Talkies are absolutely useless. Nothing new, actually, but they keep me distracted. I cannot make them shut up. Even Dwarfus is nervous around them.
 
 ...
+
+The base at sight! It has been long abandoned. No signals whatsoever.
+
+...
+
+We broke in. Like a burglars. Talkies and Whinies too dumb to wear spacesuits. Otherwise, they'd get themselves killed. The whole work done by me and Dwarfus. After thirty minutes, Pities too tired to help us any longer. Even Dwarfus seems dissatisfied. Cursing under his breath.
