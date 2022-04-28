@@ -96,3 +96,19 @@ The base at sight! It has been long abandoned. No signals whatsoever.
 ...
 
 We broke in. Like a burglars. Talkies and Whinies too dumb to wear spacesuits. Otherwise, they'd get themselves killed. The whole work done by me and Dwarfus. After thirty minutes, Pities too tired to help us any longer. Even Dwarfus seems dissatisfied. Cursing under his breath.
+
+...
+
+The loot is fascinating. Everyone's happy. I wrote as vague report as possible and sent it. Probably a huge mistake. But what can I do? I cannot afford to lie openly. The egg was among retrieved items. Hard to conceal the truth anyway.
+
+...
+
+The report discovered. Dwarfus is more cautious than expected. But his technical skills suck, so he has no idea who had sent it. It's almost funny how he is inspecting the computer. He asked several "not-so-conspicious" questions. When he saw me "alarmed", he stopped. "No biggie, Simone. Just being careful." The more I questioned him, the more he regretted to have started talking with me. I mentioned the DOZOR and laughed it off again. probably thinks I'm unnecesary paranoid.
+
+...
+
+The celebration's over. Everyone's asleep. The explosives are placed in the store. The organization knows where the base is, but as soon as I blow up our ship the egg stays drifting in Space forever. This is my best. Hopefully, someone will find it and fulfill His will. The organization will think the mission is completed. The trick is to damage the ship, but keep His artifacts intact. There'll be no tommorow for us.
+
+...
+
+I messed up. Whinies, Pities, and Talkies dead, Dwarfus and I alive. The ship was more robust than I anticipated.
