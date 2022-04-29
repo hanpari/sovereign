@@ -14,11 +14,7 @@ Doll smiled gently.
 
 "Great! Let's continue reading, shall we?"
 
-
-
-
 SIMONE'S DIARY CONTINUES
-
 
 ...
 
@@ -121,4 +117,4 @@ The celebration's over. Everyone's asleep. The explosives are placed in the stor
 
 ...
 
-I messed up. Whinies, Pities, and Talkies dead, Dwarfus and I alive. The ship was more robust than anticipated. Rest of my rotten life staying in Dwarfus' company. What a lonely and miserable death. Now I understand why the Elves kept praying so much. I don't want to die like this. My grand finale should've been quick and painless. Help me!'
+I messed up. Whinies, Pities, and Talkies dead, Dwarfus and I alive. The ship was more robust than anticipated. Destined to stay the Rest of my rotten life in Dwarfus' company? What a lonely and miserable death. Now I understand why the Elves kept praying so much. I don't want to die like this. My grand finale should've been quick and painless. Help me!'
