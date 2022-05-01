@@ -8,7 +8,7 @@ Flabberghasted, Gromov raised from the chair and got himself a glass of water.
 
 Doll smiled gently.
 
-"What is it now?" Gromov barked. "Don't be so smug. Alright, I get it. Pretend you're a well-raised Victorian lady and spare me the dew of subtle robot superiority."
+"What is it now?" Gromov barked. "Don't be so smug. Alright, I get it. Pretend you're a well-raised Victorian lady and spare me the dew of subtle robot superiority. It is more couth to hold your shrimp by the tail."
 
 "As you wish, my dearest father."
 

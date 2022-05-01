@@ -70,7 +70,8 @@ Sovereign by Pavel Morava
    02/058_probability
    02/059_diary
    02/060_camp
-   
+   02/061_mission
+   02/062_scheme
 
 .. toctree::
    :caption: Appendix
