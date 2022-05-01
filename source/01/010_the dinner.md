@@ -1,3 +1,5 @@
+# Dinner
+
 With desperation and disdain, Gromov stared at the plate the waiter had served. The dish resembled a piece of art, arranged exclusively. The combination of red, green, and yellow made it a feast for the eyes of a gourmet. Not familiar with most of them, he recognized tiny octopuses, shrimps, and broccoli supplemented with rice on curry. The origin of the rest remained the great unknown, an unexplored land occupied by unfortunate creatures that ended their short lives on the chef's palette.
 
 "What is it?" he pondered. "What is it? Am I dreaming or what? I told Akane to order a fine meal, didn't I?"

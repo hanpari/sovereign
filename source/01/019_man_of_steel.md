@@ -1,4 +1,5 @@
-1.	The man of steel
+# The man of steel
+
 The space elevator was located on the outskirts of the city, far outside the populated area. It towered like an immense monolith high into the sky, illuminated only to the height of twenty meters, while the rest was lost in the darkness and clouds.
 
 Space Force troops arrived after four o'clock in the morning, imported by several transport vehicles, quickly gathered amongst the army and civilian carriers. In a way, it was a miracle of logistics.
@@ -73,4 +74,3 @@ Steiner seemed to realize that no one was on his side, so he stepped back, "Of c
 Gromov felt that Andrey was gripping him from the side, as if to prevent him from attacking the colonel.
 
 "Thanks, Andrey," he said quietly, releasing himself. "No need to worry. When compared, he only left those kids with unlocked blasters on the streets while I sent them straight to the death. In terms of morality and ethics, he won this round."
-

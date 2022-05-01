@@ -1,3 +1,5 @@
+# Sacrifice
+
 "All B-group, Tigress here, we are going for the target. Cover me."
 
 There was nothing much left of B-group, but all remaining fighters re-adjusted their positions, signaling another attempt to break through the tight defense.
@@ -40,7 +42,7 @@ Jamal, sitting in the turret, asked hesitantly.
 
 "Ha-has Sergeant Jerzinski died?"
 
-"Of course, he has died!" Gromov wanted to bellow at the youngster. "What else did you expect?" 
+"Of course, he has died!" Gromov wanted to bellow at the youngster. "What else did you expect?"
 
 When a space vessel received a direct blaster shot, near the spot where the crew was situated, the temperature inside increased rapidly, immediately turning living flesh into charcoal.
 

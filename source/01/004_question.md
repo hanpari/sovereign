@@ -1,3 +1,4 @@
+# Question
 
 Akane made a question mark in the air and showed an exaggerated face, full of confusion, attracting so the attention of young cadets. They may find Akane cute or whatever, but Gromov felt only the irritation, coming from the fact that military matters should be obvious for lieutenant. Dying only once should not affect her so notably.
 

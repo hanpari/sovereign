@@ -1,3 +1,5 @@
+# On sight
+
 Gromov led the C Group to brush barely the top of the adversary formation, receiving furious spraying from blaster cannons in the process.
 
 „Keep changing the course,“ he reminded everyone. „Don’t let them predict your direction. Target only the closer ones…”
@@ -67,5 +69,3 @@ The boy did not waver. Gromov suspected Jamal might not know how impossible his 
 “Great. On my command, then. I’ll countdown. After zero, I will stabilize the plane. You’ll have five seconds to fire. If not sure, just skip the shot. We can repeat this a few times. Just remember, the blaster re-charging is expensive now. Do not waste it if not sure. And report if you skip.”
 
 Teaching gunner’s basics on the go, with a handful of fighters tailing him and raging to stop the crash at all costs, Gromov started counting down. He did not rely on Jamal’s performance at all - the last prescribed exercise was meant to keep the cadet occupied unless the unavoidable death becomes a reality.
-
-

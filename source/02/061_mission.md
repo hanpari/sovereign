@@ -1,3 +1,5 @@
+# Mission
+
 Flabberghasted, Gromov raised from the chair and got himself a glass of water.
 
 "Can I even believe it?" he asked aloud. "If she was a special agent of some secret murderous organization, shouldn't I be able to find out?"

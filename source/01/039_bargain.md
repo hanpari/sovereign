@@ -1,3 +1,5 @@
+# Bargain
+
 After he had reached the last line, Gromov took his time to inspect pictures accompanying the interview. No matter how hard he kept staring at the grinning pilots, they were all strangers to him, perhaps except for Anezska Kurowska, Heinrich Schubert, and Captain Chi, whose first name Gromov had never learned.
 
 Poor Akane! She wanted to attend the concert. Now she is even missing in these photos.

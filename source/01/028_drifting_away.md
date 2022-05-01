@@ -1,3 +1,5 @@
+# Drifting away
+
 In joyous celebration with another target town, only Gromov stayed unfazed. The disappearance of Q-Field enabled him to reboot systems to advanced mode, getting access to the radar screen.
 
 As expected, the scattered red dots did not waste time and instead of seeking retribution, Plantarians immediately turned their spacecraft to reach and protect the last carrier.

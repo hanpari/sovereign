@@ -1,3 +1,5 @@
+# Chaos
+
 The hotel lounge was drowning in a cacophony of voices. Military people kept pressing their communication wristbands, in desperate need to get some meaningful orders. Adding more fuel to the general confusion, the civilians wandered around the reception desk, bombarding receptionists, who could not provide any reasonable explanation to curious guests. The hotel manager with a white-dressed chef stood in a corner, explaining something to Military Police who guarded them with drawn weapons.
 
 In another corner, Andrey Jerzinski with a handful of cadets was crowded by a bunch of people of different ranks, yelling at him, while he yelled back at them: “How the heck should I know what is happening? Let me check my bloody crystal ball, sir. Or tell those idiots to stop contacting the base, they are overloading communication lines. I cannot get through.”

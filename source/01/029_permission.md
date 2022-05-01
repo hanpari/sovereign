@@ -1,3 +1,5 @@
+# Permission
+
 "Sava, is it you? Sava, I'm in pinch."
 
 As soon as Gromov was able to connect to G-group, all his hair stood up in horror. Akane broke cheerfully into his earphones, neglecting all rules of military communication.

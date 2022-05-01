@@ -1,3 +1,5 @@
+# Misunderstanding
+
 It was not a lucky day for Heinrich Schubert. The enraged Mrs. Corbin, with lips pressed into the thin line and the eyes narrowed behind circular glasses with the solid black rim, came closer, pointing the finger at his chest.
 
 "Young man," she barked. "Do you realize what you have done? Such great insult to the uniform you wear. The disgrace for the mother who gave birth to such an insolent piece of garbage. Shame on you."

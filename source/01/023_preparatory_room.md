@@ -1,3 +1,5 @@
+# Preparatory room
+
 The twenty green SF models on the3d monitor symbolized Gromov's comrades and a dissipated cloud of about one hundred red generic vessels, which kept conic formation to protect the three Q-field carriers, depicted as prolonged tubes, represented Plantarians.
 
 The captain restrained himself from loud criticism of Steiner in front of his team because of two reasons: firstly, he did not want to undermine the trust between soldiers and the superior; secondly, he realized that Major Milano, evidently a capable commander, was trying to pull any trick to postpone the inevitable collision.

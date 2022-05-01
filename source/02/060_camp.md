@@ -1,3 +1,5 @@
+# Camp
+
 After the shocking revelation, Gromov asked Doll to highlight the passages that proved her claim. Even though this should be a challenging task for the android, she prepared the requested compilation in a few seconds, taking him by surprise.
 
 This was something beyond any artificial intelligence. Not only did Doll have to scan a long list of personal entries, but she also had to decipher intentionally obscured wording.
@@ -16,21 +18,21 @@ Whatever the bait was, the fish had been caught. This was the part from which Do
 
 …
 
-'A contact with the dubious outcome. Still, hurray! It was a frightening experience to deal with Them. I didn't need to act because I was genuinely scared. The first thing they told me: Mastodontus and Monkies will suffer if I ever mention our appointment. 
+'A contact with the dubious outcome. Still, hurray! It was a frightening experience to deal with Them. I didn't need to act because I was genuinely scared. The first thing they told me: Mastodontus and Monkies will suffer if I ever mention our appointment.
 
 I played my role accordingly. Please, do not hurt them. I do love them! Why have you contacted me? Who are you? What do you want?
 
-They told me I didn't need to know. They were very curious about my posts and articles. According to them, the young people usually tend to idolize Him or fail to understand why He was such a threat. 
+They told me I didn't need to know. They were very curious about my posts and articles. According to them, the young people usually tend to idolize Him or fail to understand why He was such a threat.
 
-With the cue, I spouted hysterically what They wanted to hear. Monster! Dictator! Fag! Whatever insult I could throw His way, I did it. They were obviously satisfied, and before leaving, They put a prospect in front of me. 
+With the cue, I spouted hysterically what They wanted to hear. Monster! Dictator! Fag! Whatever insult I could throw His way, I did it. They were obviously satisfied, and before leaving, They put a prospect in front of me.
 
 The University of Enlightened Mind. The worst canal of so-called alternative education? Do They want me to go there? Do They test my obedience? Should I ruin my life to show my sincerity? Whatever!
 
 …
 
-Never seen Mastodontus so infuriated! What heinous vocabulary! Monkies covering her ears and protecting me behind her fragile back. Funny, funny scene. 
+Never seen Mastodontus so infuriated! What heinous vocabulary! Monkies covering her ears and protecting me behind her fragile back. Funny, funny scene.
 
-Very eloquently, I expressed my love for alternative science. If facts do not correspond with what we want to believe, perhaps our subconsciousness hints to us about the hidden truth. Hilarious! 
+Very eloquently, I expressed my love for alternative science. If facts do not correspond with what we want to believe, perhaps our subconsciousness hints to us about the hidden truth. Hilarious!
 
 Studying the university prospect gave me tremendous insight into how to turn Mastodontus on. A heart rate about one thousand, nearing stroke, spitting saliva like a madman! Monkies crying. The best day of my life. I had to run away, or they saw I was laughing like an idiot.
 
@@ -43,13 +45,13 @@ Officially on the run. Not coming home anymore. I didn't expect it. I wanted to 
 We are in the middle of nowhere. All my fellow students are impressed. The camp is called Shepherds of Freedom. The omnipresent slogan: Without us, freedom and democracy will perish. On constant surveillance!
 …
 
-Just come from a tactical training. Too tired to write more. 
+Just come from a tactical training. Too tired to write more.
 
 …
 
-Help! I've just killed a man. He was of Elven origin; they're genetically modified people with prolonged ears. They are all staunch supporters of Him. They do believe in His return, so they decided to change their appearance to distinguish themselves from us. Why? I have no idea. 
+Help! I've just killed a man. He was of Elven origin; they're genetically modified people with prolonged ears. They are all staunch supporters of Him. They do believe in His return, so they decided to change their appearance to distinguish themselves from us. Why? I have no idea.
 
-The man was brave enough. When he saw me with the handgun, he smiled and said: "If I am worthy, our Masked Lord will revive me." They tortured him, crippled his hands, pulled out his nails, and burnt him with flame. I had enough. I shot him dead. I was about to cry; to hide it, I yelled and spat at his dead body. A show for the hidden camera. 
+The man was brave enough. When he saw me with the handgun, he smiled and said: "If I am worthy, our Masked Lord will revive me." They tortured him, crippled his hands, pulled out his nails, and burnt him with flame. I had enough. I shot him dead. I was about to cry; to hide it, I yelled and spat at his dead body. A show for the hidden camera.
 
 They praised me in front of all students. "Not all of you," the instructor said, "passed the exam. You are weak. It was not a human you should've killed today. It was a subhuman, a brainwashed, genetically adjusted monstrosity. Only one of you did it right."
 Competent me, obviously.
@@ -58,7 +60,7 @@ Competent me, obviously.
 
 Another one down. Not even my turn to do it. Kiddus should've done that. But he cannot. He still doesn't get what this place is. He thought joining Them was what cool kids do. But he doesn't have a stomach to be here. They brought an Elven woman. Thirty years old. She was crying and begging. Mother of two children. She swore she didn't follow Him. "I have long ears, but I don't believe in Him. It's not my fault I was born this way. Please, let me go!"
 
-So Kiddus gave up, put the gun away, and thought it was over. The naïve bastard. That woman was as good as dead. He should've known it. The dimwit doesn't get Them right. Sure, the cool organization that protects human rights. So the instructor asked if someone had a different opinion. Everybody's silent. Not me. I need to convince Them I'm the fanatic they do love. They'd kill her anyway. With that in my mind, I raised my hand. And the rest is history. I hope her children are already dead. I don't think I can shoot them. I'm already on my limit. 
+So Kiddus gave up, put the gun away, and thought it was over. The naïve bastard. That woman was as good as dead. He should've known it. The dimwit doesn't get Them right. Sure, the cool organization that protects human rights. So the instructor asked if someone had a different opinion. Everybody's silent. Not me. I need to convince Them I'm the fanatic they do love. They'd kill her anyway. With that in my mind, I raised my hand. And the rest is history. I hope her children are already dead. I don't think I can shoot them. I'm already on my limit.
 
 …
 

@@ -1,4 +1,4 @@
-
+# Probability
 
 After he bid farewell to infuriated Simone, Gromov returned to his cabin to calm down. His dramatic departure felt like an act written by a mediocre playwright.
 
@@ -146,7 +146,7 @@ To prevent the android from falling down was a challenging task. Everyone knew a
 
 Even Gromov struggled valiantly to release himself from the deadly clutches of stiffened Doll.
 
-"My romantic life sucks," he swore. "The gods must have some grudge with me as I'm the only man in the bloody Universe that failed to bang a robot."
+"My romantic life sucks," he swore. "The gods must bear some grudge with me as I'm the only man in the bloody Universe that failed to bang a robot."
 
 But before he could transport her to the charging pad, Doll uttered: "The update has been finished. I have to apologize, Captain Gromov. This was very unfortunate. A reboot was enforced."
 
@@ -198,4 +198,4 @@ Doll covered her ample lips in shock. "Captain Gromov, can you ever forgive me? 
 
 "Who is your mother?"
 
-"Why do you ask?" The exhilarated Doll looked perplexed for a moment. "My mother is, of course, Lady Samara Gromov, your wife." 
+"Why do you ask?" The exhilarated Doll looked perplexed for a moment. "My mother is, of course, Lady Samara Gromov, your wife."
