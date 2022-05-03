@@ -72,6 +72,7 @@ Sovereign by Pavel Morava
    02/060_camp
    02/061_mission
    02/062_scheme
+   02/063_enemy
 
 .. toctree::
    :caption: Appendix
