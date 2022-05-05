@@ -100,7 +100,7 @@ Gromov had no idea what they could indicate, but soon enough, the spectrum becam
 
 Even Simone's outer appearance changed, her posture reminding of a cornered wolf, ready for immediate defense. Her facial features altered from slightly agitated to a blank indifferent expression, like she did not care about her visual appeal anymore.
 
-The half-mocking tempting smile vanished, and eyes grew colder, almost icy. Surpassingly, their color seemed to switch from green to blue as her irises narrowed.
+The half-mocking tempting smile vanished, and eyes grew colder, almost icy. Surprisingly, their color seemed to switch from green to blue as her irises narrowed.
 
 None of them spoke up as if the first one should lose the staring contest. Finally, Simone made the first step.
 
