@@ -73,6 +73,7 @@ Sovereign by Pavel Morava
    02/061_mission
    02/062_scheme
    02/063_enemy
+   02/064_synthesis
 
 .. toctree::
    :caption: Appendix
