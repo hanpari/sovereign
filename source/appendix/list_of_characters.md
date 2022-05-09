@@ -1,46 +1,35 @@
 # List of characters
 
-## First Lieutenant Akane Anbi 
+## Anbi, Akane
 
-## Doll
+## B, Miriam
 
-## Lady Samara Gromov
+## Corbin, Annabella
 
-## Captain Sava Gromov 
+## Chi, Jet
 
-## Sergeant Andrey Jerzinski
+## Doll Gromov
 
-## Lieutenant Heinrich Schubert
+## Gromov, Samara
 
-## Colonel Joseph Steiner
+## Gromov, Sava
 
-## Uriah Uriah
+## Jerzinski, Andrey
 
-## Simone Yeuxbleu
+## Larsson, Helga
 
-## Professor Khamal Zhutra
+## Milano, Eric
 
-TODO
+## Schubert, Heinrich
 
-Captain Sava Gromov
-Second Lieutenant Akane Anbi
-Colonel Steiner
-Ms. Annabella Corbin
-Second Lieutenant Heinrich Schubert
-Captain Jet Chi
-Major Thadeus Sholto
-Major Eric Milano
-Sergeant Andrey Jerzinski
-singer Miriam B
-cadet Helga Larsson
-cadet Jamal Yoruba
+## Sholto, Thadeus
 
+## Steiner, Joseph
 
-Dolzana military base
+## Uriah, Uriah
 
-Professor Khamal Zhutra short handsome darkskinned
-PhD student Simone Yeuxbleu short haircuts
+## Yeuxbleu, Simone
 
-University of Enlightened Mind
+## Yoruba, Jamal
 
-
+## Zhutra, Khamal
