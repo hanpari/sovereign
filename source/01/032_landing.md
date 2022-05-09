@@ -1,3 +1,5 @@
+# Landing
+
 From fifty-one dispatched fighters, only nine of them had returned safely. Most survivors belonged to Gromov's group, which made him feel awkward.
 In comparison with other groups, the discrepancy in performance was abysmal.
 While he had no clue about where such an astonishing difference originated, the pilots, to his sheer embarrassment, gave all credit to him.
@@ -33,5 +35,3 @@ In the middle of the hangar stood Steiner with two MPs. The MPs had blasters in 
 
 Steiner looked like a madman. The food poisoning took a heavy toll on his constitution,  making him tremble involuntarily.
 "I accuse this man of disobedience and cowardice under fire," he proclaimed finally. "Seize him. If he resists, shoot him."
-
-

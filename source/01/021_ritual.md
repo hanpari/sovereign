@@ -1,3 +1,5 @@
+# Ritual
+
 In a brief operational meeting, led by Major Milano and supervised by Colonel Steiner, the pilots learned their roles in the on-coming skirmish. The objectives were clear: to prevent Plantarian vessels breaking through the area defense system, which comprised light fighters, two cruisers, and orbital autonomic space probes with blasters.
 
 The fighters should act as a vanguard with the main target: to identify and eliminate possible Q-Field generators, no matter the costs. In layman's term, the advance of the enemy had to be stopped by intentional collisions if other options were exhausted. Q-Field generator getting nearer cruisers would render all defense useless, causing probably death or subjugation of millions of civilians, who would die in the following meteor shower.

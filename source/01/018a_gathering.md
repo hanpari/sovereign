@@ -1,3 +1,5 @@
+# Gathering
+
 The tension caused by Schubert’s words did not affect Gromov. He was not afraid of death; after Samara’s wedding even less than before. However, the other pilots, younger and still enjoying the life offerings, were troubled by overwhelming numbers of the Plantarian vessels, having never encountered more than few space fighters.
 
 Gromov and Akane, coming from Dolzana base, which was recently facing considerable attacks and became as such the largest Space Forces’ facility, have been involved in high scale skirmishes for years. Two months ago, when Akane due to her recklessness had died, the battlefield comprised almost two hundred space planes, with Q-Field carriers presenting the biggest threat.

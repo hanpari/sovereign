@@ -1,3 +1,5 @@
+# Noble house
+
 Never fond of impulsive decisions, Gromov evaluated Heinrich Schubert once again. He had mixed feelings when recollecting the encounters with the lieutenant.
 
 That man brought a disaster on his head, got beaten by Akane Anbi, and what was worse, he seemed to fall for her in an unhealthy manner, acting like a shy boy who never had seen a girl before.

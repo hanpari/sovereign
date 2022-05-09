@@ -1,3 +1,5 @@
+# The art of socializing
+
 The buzzing room, full of officers and people in suits, appeared almost full. The tables, decorated with beautifully arranged flowers, offered polished glasses and porcelain plates with exotic savories.
 
 Waiters were moving elegantly, with noblesse of penguins in the tuxedo which contrasted with the down-to-earth attitude of pilots who spoke in muted voices, uncomfortable in the presence of higher-ups.

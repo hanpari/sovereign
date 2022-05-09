@@ -1,3 +1,5 @@
+# Prelude
+
 After one long month of isolation, they escorted hand-cuffed Gromov to headquarters. With serious faces, the members of Military Police refused to answer any Gromov's questions.
 
 But as they got in the car, one of them winked at him and switched on the audio player.
@@ -26,7 +28,7 @@ To the uttermost Gromov's horror, the remaining MPs began humming along.
 
 Situated in the police car and surrounded by grinning MPs, Gromov stiffened, as he sensed an undefined threat creeping around. "Are they trying some psychological tricks on me?"
 
-Meanwhile, the tall guy beside him imitated playing guitar while the red-faced fatty MP pursed lips to whistle main motifs, awfully out of tune, but performing enthusiastically. 
+Meanwhile, the tall guy beside him imitated playing guitar while the red-faced fatty MP pursed lips to whistle main motifs, awfully out of tune, but performing enthusiastically.
 
 "Would you mind stopping that?" Gromov asked softly, not daring to provoke their anger. "You know you should not do this."
 

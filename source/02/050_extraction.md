@@ -1,3 +1,5 @@
+# Extraction
+
 With limited possibilities of verifying whether the distress signal was legit, Gromov undertook all counter-measures to stay on the safe side. With the help of Doll, he checked the offline database of registered spaceplanes.
 
 The hexadecimal number FF54A123BB provided by K. Zhutra belonged to the private University of Enriched Mind; just the name itself put Gromov on the verge of vomiting.
@@ -140,7 +142,6 @@ Gromov forcefully suppressed his growing irritation.
 
 Hyena? From all animals, I can be compared to why Uriah had to choose a hyena? Why not a lion or bear or bull? Anything more majestic would do. But a hyena?
 
-
 "Thank you, Uriah. I strongly recommend you spend more time with zoology books. As for you, Professor Zhutra - if you are not satisfied with our services, you may return to your ship and die in well-deserved dignity, donned in a tuxedo if you will."
 
 "Please, Captain Gromov. Let's discuss rationally. Of course, we are grateful. But do not forget we are people with basic human rights. Aren't you afraid we will file a complaint after we come back? Think of the good name of the company you are working for."
@@ -162,5 +163,3 @@ Zhutra did not look like stepping back, but his companion suddenly spoke up: "Cu
 Even though Zhutra was whispering, his agitated voice still reached Gromov and Uriah.
 
 "Should I go for the vaseline, sir?" asked Uriah, offended on behalf of his captain. "I will introduce their sphincters to the Middle Ages."
-
-

@@ -1,3 +1,5 @@
+# DOZOR
+
 Wandering around VIP tables, the most hilarious occurrence that Gromov experienced was the talk of two congressmen, who enthusiastically discuss today's choice of food. Last week, he watched them in a hot debate that almost ended up in a fistfight. Now they were the best buddies, betraying so the trust of poor misled voters.
 
 After having introduced him to the others, Steiner disappeared to catch another victim. Gromov stood in the corner, avoiding contact with anyone and drinking some bitter drink. Judging from a few curious looks, the others might want to approach him in conversation, but he did his best to discourage them.
@@ -67,4 +69,4 @@ Gromov wished he had never drank the liquor, made the stupid joke, and met this 
 
 "Nevermind!" he blurted, noticing she was wearing the guest tag.
 
-"Annabelle Corbin, isn't it? The Ministry of Defense, I guess. This should do. I'll write you the letter. Enjoy the evening, Mrs. Corbin."
+"Annabela Corbin, isn't it? The Ministry of Defense, I guess. This should do. I'll write you the letter. Enjoy the evening, Mrs. Corbin."

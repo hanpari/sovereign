@@ -1,3 +1,5 @@
+# Alarm
+
 Behind the windows, the siren of the ambulance ruined the calm night.
 
 With hotel breakfasts happening from eight to ten o'clock, Gromov did not intend to get up before seven. However, at two eighteen, the communication wristband, vibrating frantically, woke him up. Rather shocked, he realized the local military station had announced the battle alarm, its highest level, meaning all soldiers had to report immediately, no matter their status.
@@ -39,7 +41,6 @@ Gromov had no reason to doubt man's words. Even from the distance of two meters,
 They were out of their mother bases, which practically left them without a commander. Nobody bothered to appoint one for them, as their presence here was only formal, without attached duties. With alert in the air and feeling sick, pilots had no idea what to do.
 
 Gromov decided to step in.
-
 
 "Listen, ladies and gentlemen,” he had to raise the voice to convey the message. “The sick stays inside. I need no puking heroes around. Leave your door unlocked and indicate them with socks or something. I’ll arrange a medical aid for you as soon as possible. The rest gathers next to the emergency exit. Understood?”
 

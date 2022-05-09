@@ -1,4 +1,6 @@
-﻿After entering the Space Station, they experienced a huge relief, coming probably from the fact they got there and that the surroundings had changed to the familiar design, unified for all orbital military stations: white walls with pictograms and well-known equipment.
+﻿# Choosing
+
+After entering the Space Station, they experienced a huge relief, coming probably from the fact they got there and that the surroundings had changed to the familiar design, unified for all orbital military stations: white walls with pictograms and well-known equipment.
 
 Major Milano, a tall grey haired officer with a stern look and polite manners, reserved and not overly talkative, had welcomed them individually with the handshake and words of appreciation, while assigning them to flying squadrons. It took half an hour as he needed to consult his tablet each time he had met a pilot from a different base.
 

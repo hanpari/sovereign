@@ -1,3 +1,5 @@
+# Stalemate
+
 Like an impenetrable wall, the enemies focused solely on deterring the progress of Gromov's group, denying access to the Q-Field carrier 1. Even though Gromov kept the majority of his vessels alive and kicking, Plantarians just outnumbered them, not leaving any opportunity to breakthrough.
 
 The time was of crucial importance here. Nearing the zone with cruisers, the chances of crippling the waiting battleships thrived with each passing minute.

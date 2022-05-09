@@ -1,3 +1,5 @@
+# Insanity
+
 "Not so fast, sir!"
 
 From the rattled and unsatisfied crowd emerged a familiar figure, the only survivor from A-group, Lieutenant Heinrich Schubert. His complexion went through a heaven-defying change, turning from unhealthy pale to unnatural reddish shade, which made the young officer look like a scary, yet cute blond doll.

@@ -1,3 +1,5 @@
+# Arrested
+
 "Seize him. He is an agent of our inner enemies. Secure him. Don't let him go," Steiner kept blabbering inconsistently to confused MPs.
 
 The ironclad rule of incompetency was to blame someone else. The foreigners, competitors, envy, you name it. To not loosen the grip on the career ladder, one had to exercise a strong self-convincing facility. Whose fault? Absolutely not mine.
@@ -44,11 +46,3 @@ From their point of view, Gromov's decision was correct and Colonel just should 
 Blissfully ignorant, they did not realize how seriously was Steiner's career jeopardized at the moment. Not only he exerted blatant incompetency (this was rather a minor issue), but he had given a personal guarantee to the minister there would be no problems during the Space Forces' summit.
 
 Taken from the colonel's perspective, one thing was crystal clear. He needed to find a proper scapegoat.
-
-
-
-
-
-
-
-

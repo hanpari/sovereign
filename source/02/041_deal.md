@@ -1,3 +1,5 @@
+# Deal
+
 "Listen to me, my friend."
 
 After a few whiskey shots, Mr. Cecil Shanks reached the ultimate level of intimacy between the two men. Gromov watched him, analyzing carefully the waves of pity which he felt for the salesman.

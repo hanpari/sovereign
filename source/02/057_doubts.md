@@ -1,3 +1,5 @@
+# Doubts
+
 What an unexpected development! On the verge of standing up, slamming the door shut, and running away from the phantasmagoric world where saints are monsters or vice versa, Gromov exercised restraint and patience.
 
 He kept an inquiring face as if Simone brought up a mere juicy gossip. If not for the mysterious appearance of demonic Samara, which was an event he could not rationalize, he would not bother any longer.
@@ -40,7 +42,7 @@ Reluctantly, she relaxed and retracted.
 
 "You fell on your head. Do you have a concussion? How many fingers you see?"
 
-"About fifty," Gromov grunted and got on his feet. "Thank you, Simone, but I'm fine."   
+"About fifty," Gromov grunted and got on his feet. "Thank you, Simone, but I'm fine."
 
 Surprisingly enough, he was not lying. The temporary unconsciousness left him refreshed with no symptoms whatsoever with one caveat - when he had focused on Simone's erected fingers, he could see through flesh, decomposed to bones and a network of capillaries.
 
@@ -93,7 +95,7 @@ The tone Gromov used was so icy that the young woman shivered.
 "Had Khamal or you any idea what they meant?"
 
 "Of course, we had. We were fully qualified to explore the space station. And for the record, we did not rob it. It has been abandoned."
- 
+
 "For what reason?"
 
 "No clue."
@@ -123,7 +125,6 @@ The tone Gromov used was so icy that the young woman shivered.
 "Not important," Simone insisted, switching to a soothing, condescending tone. "Look, Sava. Khamal and I are well-trained professionals, and this was not the first time we had explored an abandoned habitat in outer space. We took all possible precautions to avoid problems, including Plantarian virus - if this is the reason why you've started acting so strangely."
 
 "Precaution my ass," Gromov opposed silently. "According to the interplanetary law, the only correct procedure when encountering a space object, possibly containing an infected material of unknown origin, is never to approach, inform the nearest space forces, and wait for them to shoot the object with a nuclear missile. If you have been infected, or there is even a possibility of being infected, you have to put yourself into strict quarantine. The chances are the called space forces will include you into the nuclear explosion to be safe than sorry."
-
 
 Simone burst into laughter.
 

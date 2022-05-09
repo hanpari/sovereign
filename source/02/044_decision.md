@@ -1,3 +1,5 @@
+# Decision
+
 The dream of leaving the Advanced Nations behind disappeared as soon as Gromov and his crew commenced readying the spaceship for departure.
 
 The old owner, Luciano, had very unorthodox views on what the long space journey required: the only food available were different kinds of pasta and spicy sauces, not to speak about the storage room dedicated only to shelves with the vine.

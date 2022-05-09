@@ -1,3 +1,5 @@
+# Unexpected revelation
+
 "That's enough!"
 
 With the expression of disdain and annoyance,  Space Marshall jumped on his feet, strolling along the table directly to the prisoner. "Neither are we here for trading free backup slots, nor for being mocked, Captain. Whatever you may think, the predicament you are in is severe. The charges of Colonel Steiner, with evidence from recordings of the battle, proved beyond any doubts you had neglected the direct order from the Space Station. As for your alleged cowardice, you can rest assured, nobody would consider it for a moment."

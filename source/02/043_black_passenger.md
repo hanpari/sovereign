@@ -1,3 +1,5 @@
+# Black passenger
+
 After a short fight, Gromov subdued his opponent. The man did not resist much. He was so small and weak that Gromov thought his black passenger was a strayed child.
 
 "Please, do not hurt me!" begged the creature, cautiously eyeing the clenched fist hovering over his head.

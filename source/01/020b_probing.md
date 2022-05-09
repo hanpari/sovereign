@@ -1,4 +1,6 @@
-﻿The power of voice stunned them. The captain towered over them like an enraged bear, leaned forward, hands behind his back, exposing soft abdomen and not guarding himself. Still, the menace and threat was clear, almost palpable, letting them know he intent to strike back, beating them to a pulp in the process, because their teenage light bodies would not stand a chance against the prevailing mass of a furious adult.
+﻿# Probing
+
+The power of voice stunned them. The captain towered over them like an enraged bear, leaned forward, hands behind his back, exposing soft abdomen and not guarding himself. Still, the menace and threat was clear, almost palpable, letting them know he intent to strike back, beating them to a pulp in the process, because their teenage light bodies would not stand a chance against the prevailing mass of a furious adult.
 
 Clenching fists, they drew hands up, hesitating - then, the cadet on the left, handsome dark-haired one with the round face and gentle facial features, managed to punch Gromov's belly, just a few centimeters under the rib cage.
 

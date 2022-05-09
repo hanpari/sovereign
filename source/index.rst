@@ -50,6 +50,7 @@ Sovereign by Pavel Morava
    01/039_bargain
 
 .. toctree::
+   :maxdepth: 2
    :caption: The artefact
 
    02/040_leaving
@@ -70,9 +71,18 @@ Sovereign by Pavel Morava
    02/058_probability
    02/059_diary
    02/060_camp
-   
+   02/061_mission
+   02/062_scheme
+   02/063_enemy
+   02/064_synthesis
+   02/065_reward
 
 .. toctree::
+   :maxdepth: 2
+   :caption: The business
+
+.. toctree::
+   :maxdepth: 2
    :caption: Appendix
 
    appendix/list_of_characters

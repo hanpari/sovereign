@@ -1,3 +1,5 @@
+# Under fire
+
 The first clash occurred after the third wave left Space Station. Major Milano's fighters attacked the left wing of Plantarians formation, trying to break through toward one of the Q-Field carriers.
 
 Having enough time to adjust the protection in the threatened area, Plantarians defended their crucial spacecraft with ease.
@@ -103,8 +105,3 @@ Given that A crews will last for so long, Gromov thought. They suffered heavy ca
 According to the protocol, Gromov should switch the transmission to inform Steiner, but he decided not to as he was afraid that the colonel would object.
 
 With nothing to do for the remaining moments, he glanced over the monitor; the screen became almost unreadable as with the proximity of three Q-Fields, the complex automatic systems became unstable. Most of the battlefield darkened, only screams from separated skirmishes echoed in the audio. None of the overheard voices belonged to Akane.
-
-
-
-
-

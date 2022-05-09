@@ -1,3 +1,5 @@
+# Too late
+
 "I got them! I got them!"
 Shouting in triumph, Jamal, after few skipped attempts, had hit the carrier. Not only once, but twice, probably thanks to the fact that the big and steadily progressing vessel represented an ideal target.
 Still, nothing happened.

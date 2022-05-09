@@ -1,3 +1,5 @@
+# Temptation
+
 “Annabelle, what is happening here? I was away to change my dress and coming back I've met the pilots, complaining you didn't allow them to take a picture with me. Why?”
 
 With a fake pleasant smile, Miriam B was eyeing Mrs. Corbin. The latter began explaining the situation, but nothing she said did appeal to the singer.

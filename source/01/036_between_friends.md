@@ -1,3 +1,5 @@
+# Between friends
+
 The face of the mummy sitting in front of Gromov stiffened. After she had offered kindness and benevolence, Mrs. Jaques did not expect such a dry retort and an unapologetic attitude.
 
 Treating him like a spoiled child, she snapped, "Captain, please do understand that the state you are in is the mere consequence of your doings. We can help only if you are willing to cooperate. If not, I am afraid our little meeting may be over. Understand kindly that if you want to avoid a martial court, you are not in a position to demand anything. Sorry!"
@@ -43,8 +45,3 @@ Gromov, ultimately amused, stepped in. "A life backup is not mandatory, madame. 
 "Excellent!"
 
 Following which, she addressed Space Marshall, "Sir, we have to investigate all Space Forces' pilots and gunners. We need the list of people who had declined their backups. We shall not waste their precious slots anymore."
-
-
-
-
-
