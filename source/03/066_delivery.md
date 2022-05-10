@@ -44,7 +44,7 @@ Dříve než mohl utéct, Simona se pohnula.
 
 "Počkej, Khamale," řekla jasným zpěvavým hlasem. "Stůj!"
 
-Simona vstala z postele v noční košili, do které ji převlékla a Panenka, a nalila si sklenici vody, kterou žíznivě vypila.
+Simona v noční košili, do které ji převlékla a Panenka, vstala a nalila si sklenici vody, kterou žíznivě vypila.
 
 "Cítím se skvěle," odpověděla na Gromovův tázavý pohled. "Jsem nesmírně vděčná, za šanci, kterou jsi mi dal, můj nejdražší..."
 
