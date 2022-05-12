@@ -83,3 +83,5 @@ Samara's green eyes glowed: "No need to worry, my beloved husband. The misconcep
 "So they were chosen for slaughter? Not a choice one would make willingly."
 
 "Not only willingly," Samara proclaimed and laid her hand on Simone's forehead, making the dimming embers of Simone's conscience blacken. "They agreed gleefully, understanding there was a price to pay."
+
+With a visible sorrow, Samara caressed Gromov's hand. "And you shall pay the harshest one, my beloved husband."
