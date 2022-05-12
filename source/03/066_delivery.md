@@ -18,11 +18,11 @@ Co se týče samotného Zhutry, ten učinil několik nesmělých pokusů vyptat 
 
 To ubohého profesora jen utvrdilo v přesvědčení, že padl do rukou bezohledného sadisty; snažil se proto Gromovu vyhýbat, což ten kvitoval s potěšením. Když se potkali na chodbě, Zhutra natlačený na stěnu, aby mezi nimi zůstalo dostatek volného prostoru, Gromov ho zastavil s přátelským úsměvem.
 
-"Doufám, že se s námi nenudíš, Khamale," řekl. "Mám trochu výčitky svědomí, že tě se Simonou tak zanedbáváme. Ale jsme oba muži, takže..."
+"Doufám, že se s námi nenudíš, Khamale," řekl. "Mám trochu výčitky svědomí, že tě se Simonou tak zanedbáváme. Když máme volnou chvilku, třese se takříkajíc podlaha, takže..."
 
-Gromov významně nedokončil a objal Zhutru kolem ramen. Ten se pokusil taktně vymanit, ale od chvíle, kdy skončila Syntéza, Gromov cítil, že i jeho tělo se změnilo, takže kdyby chtěl, mohl by Zhutrovi drtit kosti.
+Gromov významně nedokončil a objal Zhutru kolem ramen. Ten se pokusil taktně vymanit, ale od chvíle, kdy skončila Syntéza, Gromov cítil, že kdyby chtěl, mohl by Zhutrovi drtit kosti.
 
-Gromov chvíli zvažoval, zda by to neměl udělat. Kdyby se měl řídit Panenčiným světonázorem, mohl velice snadno prohlásit Zhutru za nižší formu života a naložit s ním jako lidé zacházeli s dobytkem, nebo ještě lépe s obtížnými škůdci. Gromov možná necítil vražednou nechuť ke všemu lidskému, ale o přínosu Zhutry pro společnost pochyboval.
+Kdyby se měl řídit Panenčiným světonázorem, mohl velice snadno prohlásit Zhutru za nižší formu života a naložit s ním jako lidé zacházeli s dobytkem, nebo ještě lépe s obtížnými škůdci. Gromov možná necítil vražednou nechuť ke všemu lidskému, ale o přínosu Zhutry pro společnost pochyboval.
 
 Nebylo to ostatně poprvé, co se zabýval podobnými myšlenkami. Ale pokud se dokázal ovládnout, když plukovník Steiner posílal své podřízené na smrt, pak neměl jediný důvod začínat s Khamalem, jehož jeho jediným proviněním zůstávalo to, že byl vychován jako zbytečný parazit.
 
@@ -32,7 +32,7 @@ Nebylo to ostatně poprvé, co se zabýval podobnými myšlenkami. Ale pokud se 
 
 "Nic, nic. Jen mne tak uvažuji, že je to pár dní, co jsem ji nepotkal. Napadlo mne, zda není nemocná."
 
-"Je zdravá jako rybička. Většinu času prospí. Bude lepší, když se přesvědčíš sám."
+"Je zdravá jako rybička. Většinu času prospí. Bude lepší, když se sám přesvědčíš."
 
 "To není potřeba. Samozřejmě, naprosto chápu, že je unavená."
 
@@ -44,15 +44,13 @@ Dříve než mohl utéct, Simona se pohnula.
 
 "Počkej, Khamale," řekla jasným zpěvavým hlasem. "Stůj!"
 
-Simona v noční košili, do které ji převlékla a Panenka, vstala a nalila si sklenici vody, kterou žíznivě vypila.
+V noční košili, do které ji převlékla a Panenka, Simona vstala, nalila si sklenici vody a žíznivě ji vypila.
 
 "Cítím se skvěle," odpověděla na Gromovův tázavý pohled. "Jsem nesmírně vděčná, za šanci, kterou jsi mi dal, můj nejdražší..."
 
 Gromov, který si byl jistý, že chtěla použít oblíbené Panenčino oslovení, se ušklíbl při představě, že získal už druhou dceru, a to ještě se Samarou nespal. Tímhle tempem se mohl stát otcem zástupů, aniž by se angažoval po fyzické stránce.
 
-Naštěstí měla Simona dost rozumu, aby se včas zarazila, než Khamala navedla na scestné myšlenky, týkající se hrátek mezi nimi.
-
-Simona se protáhla a sledovala Zhutru s kapkou škodolibosti.
+Naštěstí měla Simona dost rozumu, aby se včas zarazila, než Khamala navedla na scestné myšlenky, týkající se hrátek mezi nimi. Takže se jen protáhla a sledovala Zhutru s kapkou škodolibosti.
 
 "Neuvěřitelný zážitek," zavrněla. "Poznala jsem nový svět, objevila nové obzory. Moje tělo už není stejné. A to vše díky Savovi."
 
@@ -62,11 +60,13 @@ Simona se protáhla a sledovala Zhutru s kapkou škodolibosti.
 
 Gromov si všiml, že Simoniny oči ztratily svou nazelenalou barvu a nyní se v nich odrážela temná modř hlubokého moře, téměř bez bělma. Za nimi mohl pozorovat neobvyklou mozkovou aktivitu, svazky energie zamířené na unikající cíl, mizící v Zhutrově těle.
 
-"Jsi můj nejlepší přítel, Khamale, že je to tak?"
+"Jsi můj nejlepší přítel, Khamale, že je to tak?" Simona pronesla se zvláštní intonací, jako kněz, když zpívá litanii.
 
 "Ano, Simonko, to víš, že ano."
 
-"Vsadíš se, že pro mne uděláš cokoliv."
+Kdyby Gromov neviděl zářící spojení mezi nimi, myslel by si, že se žena snaží Zhutru zhypnotizovat. Trpasličí Adonis se ocitl v pasti neznámé moci a reagoval na ni jako kobra na fakírovu flétnu.
+
+"Vsadím se, že pro mne uděláš cokoliv."
 
 "Naprosto."
 
@@ -84,8 +84,16 @@ Gromov si všiml, že Simoniny oči ztratily svou nazelenalou barvu a nyní se v
 
 "Škoda, že máš proto poškozený mozek a spoustu věcí si nepamatuješ."
 
-Fascinovaný Zhutra vážně odkýval ta slova.
+Fascinovaný Zhutra vážně odkýval její slova.
 
 "Mám poškozený mozek," opakoval se slzami v očích. "Nic si nepamatuji."
 
-"Ale nic není ztraceno," pokračovala Simona s líbezným úsměvem. "Nemusíš se bát. Stačí jen počítat. Každou volnou chvíli. V lodní knihovně najdeš spoustu příkladů z matematiky. Co budeš na lodi, budeš procvičovat svůj mozek. Nebudeš mít čas na nic jiného. Jenom na matematiku. Rozumíš? Jen to tě může zachránit."
+"Ale nic není ztraceno," pokračovala Simona s líbezným úsměvem. "Nemusíš se bát. Stačí jen počítat. Každou volnou chvíli. V lodní knihovně najdeš spoustu příkladů z matematiky. Co budeš na lodi, budeš procvičovat svůj mozek. Nebudeš mít čas na nic jiného. Jenom na matematiku. Rozumíš? To pomůže! A teď můžeš jít, Khamale."
+
+Když se svazek energie vytratil, Simona se zapotácela a zakryla si oči. "Běž, Khamale, běž," vybídla ho netrpělivě. "Potřebujeme se Savou soukromí."
+
+"Jistě. Já jen..."
+
+Zhutra se obrátil na Gromova: "Myslím, že bych potřeboval učebnice matematiky. Najdou se tady nějaké?"
+
+"Spousty," ujistil ho Gromov s pobaveným úsměvem. "Zesnulý Luciano pravda holdoval jiným disciplínám, ale také rád předstíral, že je polyhistor, takže žádný strach, Khamale. Budeš mít příležitost obcovat s královnou věd do alelujá. Ale  
