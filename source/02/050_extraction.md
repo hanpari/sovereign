@@ -8,7 +8,7 @@ The University of Enriched mind. Do they teach esoterics now?
 
 "I have found no problem so far," he reported after examination of the visual footage from the wreckage. Without a doubt, there were signs of heavy damage in the motor section; the rocket nozzle and the rear of the vessel were blown away, indicating an explosion coming inside out.
 
-"A miracle they've managed to survive," muttered Gromov. "This is the most suspicious part. If something exploded, how they kept the life-support system working? The backup battery would last for few days maximally."
+"A miracle they've managed to survive," muttered Gromov. "This is the most suspicious part. If something exploded, how do they keep the life-support system working? The backup battery would last for a few days maximally."
 
 "They were lucky we were nearby, sir."
 
@@ -22,7 +22,7 @@ Uriah did not give up.
 
 "Pirates!" Just the word excited Uriah immensely. "I am ready, sir, for anything."
 
-From behind his back, Uriah picked up a plastic pipe with a knife attached to it.
+Uriah picked up a plastic pipe with a knife attached.
 
 "I made a spear, sir!"
 
@@ -34,13 +34,13 @@ Uriah probably expected the captain to laugh at him, but Gromov only inspected t
 
 "No. I meant mine and yours. We only have two of them, you know."
 
-Then, Gromov focused on the extraction maneuver. With side nozzles in the manual regime, the freight ship began clumsily approach the damaged spacecraft.
+Then, Gromov focused on the extraction maneuver. With side nozzles in the manual regime, the freight ship began clumsily approaching the damaged spacecraft.
 
-Finally, the magnetic pads touched their counterparts, and the bridge had been established, creating a safe pressurized tunnel between two ships.
+Finally, the magnetic pads touched their counterparts, and the bridge was established, creating a safe pressurized tunnel between two ships.
 
 "Captain Gromov speaking. The air is being pumped inside. No leakage observed. The pressure is stable. Captain Zhutra, do you understand?"
 
-From the communicator, the male voice asked: "Does it mean we can open the lid and go your direction?"
+From the communicator, the male voice asked: "Does it mean we can open the lid and go in your direction?"
 
 "Good grief!"
 
@@ -48,7 +48,7 @@ Working with civilians was troublesome. Compared to the SF personnel who had to 
 
 After the communication line had been established, Gromov realized he had to deal with two clueless people. The captain, who kept calling himself Professor Zhutra, tended to be overly talkative as if Gromov was his barbecue guest.
 
-His Ph.D. student, Simone Yeuxbleu, seemed more reasonable, but Professor Zhutra insisted on talking with Gromov, even though Gromov hinted that he would prefer to speak with the woman. Explaining emergency procedures to that guy was a hassle.
+His Ph.D. student, Simone Yeuxbleu, seemed more reasonable, but Professor Zhutra insisted on talking with Gromov, even though Gromov hinted he would prefer to speak with the woman. Explaining emergency procedures to that guy was a hassle.
 
 Zhutra had a habit of doubting every Gromov's word while suggesting "optimal" ways of doing things.
 
@@ -56,25 +56,24 @@ Never having respect for academicians, especially not for those from private uni
 
 "Captain Gromov speaking. Do proceed as explained before."
 
-The man on the other side of the line hesitated: "But, would not be better if we..."
+The man on the other side of the line hesitated: "But, would it not be better if we..."
 
 "I SAID DO PROCEED!"
 
 Gromov covered the microphone and continued through gritted teeth: "I'll kill him. I swear I'll kill him."
 
-"I understand, Captain Gromov. We will proceed, then. Please relax and don't be so tense. Judging from your tone, you may appreciate an oriental massage that highly relieves mental stress. Unfortunately, Lia, my other student, had perished. Each time I felt that the tension accumulated way too much, I let her hands do the magic. We are both men with responsibility, so I can understand why you overreact a bit."
+"I understand, Captain Gromov. We will proceed, then. Please relax and don't be so tense. Judging from your tone, you may appreciate an oriental massage that relieves mental stress. Unfortunately, Lia, my other student, had perished. Each time I felt that the tension accumulated way too much, I let her hands do the magic. We are both men with responsibility, so I understand why you overreact."
 
 "I'll give you a massage," mumbled Gromov. He unmuted the microphone and said: "Captain Gromov speaking. The state of emergency! According to our sensors, there is a leakage in the tunnel. The oxygen level will become critical in ten minutes. I am starting the countdown. Nine minutes and fifty-nine seconds. Nine minutes and fifty-eight seconds..."
 
 "What? What? A leakage? Captain Gromov, is it a problem?"
-
-"Nine minutes and fifty seconds. Captain Gromov to Captain Zhutra. This is a problem, indeed. If you are unable to continue, let your student go first. There is no time to lose. We can't guarantee the safety of both of you if the extraction maneuver is delayed any further."
+Captain Gromov to Captain Zhutra. "Nine minutes and fifty seconds. This is a problem, indeed. If you are unable to continue, let your student go first. There is no time to lose. We can't guarantee the safety of both of you if the extraction maneuver is delayed any further."
 
 With no intention of leaving his spot to the lady, Professor Zhutra valiantly attacked the lid, no more hesitant, and crawled through the tiny passage.
 
 Since the artificial gravity was turned off, Gromov, Uriah, and Doll were floating around the opening and waiting for the rescued passengers.
 
-Finally, a man in his forties appeared, hurrying to get out of the open cover. He was an incredibly handsome fellow, blessed with dazzling black hair that formed small curls around his head.
+Finally, a man in his forties appeared, hurrying to get out of the open cover. He was an incredibly handsome fellow, blessed with dazzling black hair forming small curls around his head.
 
 With regular facial features, smooth, delicate brown skin, well-trimmed eyebrows, and a sporty body with broad shoulders and small buttocks, Professor Zhutra looked like a model from a fashion magazine.
 
@@ -140,11 +139,11 @@ Uriah, who cautiously watched Gromov's reddening face, knew that the latter was 
 
 Gromov forcefully suppressed his growing irritation.
 
-Hyena? From all animals, I can be compared to why Uriah had to choose a hyena? Why not a lion or bear or bull? Anything more majestic would do. But a hyena?
+Hyena? Of all animals, I can be compared to why Uriah had to choose a hyena? Why not a lion or bear or bull? Anything more majestic would do. But a hyena?
 
 "Thank you, Uriah. I strongly recommend you spend more time with zoology books. As for you, Professor Zhutra - if you are not satisfied with our services, you may return to your ship and die in well-deserved dignity, donned in a tuxedo if you will."
 
-"Please, Captain Gromov. Let's discuss rationally. Of course, we are grateful. But do not forget we are people with basic human rights. Aren't you afraid we will file a complaint after we come back? Think of the good name of the company you are working for."
+"Please, Captain Gromov. Let's discuss this rationally. Of course, we are grateful. But do not forget we are people with basic human rights. Aren't you afraid we will file a complaint after we come back? Think of the good name of the company you are working for."
 
 "Are you threatening me?"
 
@@ -156,9 +155,9 @@ Hyena? From all animals, I can be compared to why Uriah had to choose a hyena? W
 
 "One more but, and you are off this ship!"
 
-Zhutra did not look like stepping back, but his companion suddenly spoke up: "Cut the crap, Khamal. If Captain Gromov prefers to be safe than sorry, it's his business. What's the deal, anyway? Yesterday we thought we were done for; now we are here. Why should we argue with him?"
+Zhutra did not look like stepping back, but his companion suddenly spoke up: "Cut the crap, Khamal. If Captain Gromov prefers to be safe than sorry, it's his business. What's the deal, anyway? Yesterday we thought we were done; now we are here. Why should we argue with him?"
 
-"Simone, this is one point of view on how to look at our situation. But if we yield to such an abuse of power, what is the next thing he will make us do? We have no idea for how long they are in the space. If we don't set firm boundaries naow, he may become bolder in the future. You are a beautiful woman, and he seems to be rather desperate. Haven't you noticed that the blond girl is an android sex doll? If he lowered himself to make love with an artificial woman, why should he restrain himself from raping you?"
+"Simone, this is one point of view on how to look at our situation. But if we yield to such an abuse of power, what is the next thing he will make us do? We have no idea for how long they are in the space. If we don't set firm boundaries now, he may become bolder in the future. You are a beautiful woman, and he seems to be rather desperate. Haven't you noticed that the blond girl is an android sex doll? If he lowered himself to make love with an artificial woman, why should he restrain himself from raping you?"
 
 Even though Zhutra was whispering, his agitated voice still reached Gromov and Uriah.
 
