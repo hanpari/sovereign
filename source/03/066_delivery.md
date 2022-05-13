@@ -94,6 +94,6 @@ Když se svazek energie vytratil, Simona se zapotácela a zakryla si oči. "Bě�
 
 "Jistě. Já jen..."
 
-Zhutra se obrátil na Gromova: "Myslím, že bych potřeboval učebnice matematiky. Najdou se tady nějaké?"
+Omámený Zhutra se obrátil na Gromova: "Myslím, že bych potřeboval učebnice matematiky. Najdou se tady nějaké?"
 
-"Spousty," ujistil ho Gromov s pobaveným úsměvem. "Zesnulý Luciano pravda holdoval jiným disciplínám, ale také rád předstíral, že je polyhistor, takže žádný strach, Khamale. Budeš mít příležitost obcovat s královnou věd do alelujá. Ale  
+"Spousty," ujistil ho Gromov s pobaveným úsměvem. "Zesnulý Luciano pravda holdoval jiným disciplínám, ale také rád předstíral, že je polyhistor, proto žádný strach. Budeš mít příležitost obcovat s královnou věd do alelujá. Ovšem napřed bych se rád zeptal, co se přihodilo? Vždycky jsem měl dojem, že zastánci alternativního vzdělání nekladou na matematiku přehnaný důraz."
