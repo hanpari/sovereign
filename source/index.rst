@@ -27,8 +27,8 @@ Sovereign by Pavel Morava
    01/018_in_charge
    01/018a_gathering
    01/019_man_of_steel
-   01/020a_choosing
-   01/020b_probing
+   01/020a_probing
+   01/020b_bullying
    01/021_ritual
    01/022_despair
    01/023_preparatory_room
@@ -76,6 +76,7 @@ Sovereign by Pavel Morava
    02/063_enemy
    02/064_synthesis
    02/065_reward
+   02/066_scapegoat
 
 .. toctree::
    :maxdepth: 2
