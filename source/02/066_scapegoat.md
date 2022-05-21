@@ -110,9 +110,9 @@ Resting in a chair, Simone made an indistinguishable sound.
 
 "Oh, nothing, Khamal. Just wanted to confirm your words. Huge creativity, no doubt!"
 
-Zhutra looked at Gromov as if he suspected the man of injecting a dose of sarcasm into Simone's veins, but Gromov sported a face of an innocent baby.  
+Zhutra looked at Gromov as if he suspected the man of having injected a dose of sarcasm into Simone's veins, but Gromov sported a face of an innocent baby.  
 
-"If you excuse me," Zhutra went on clumsily. "I shall visit the ship library. Learning till the end. No need to make me a company, Sava."
+"Now if you excuse me," Zhutra went on clumsily. "I shall visit the ship library. Learning till the end. No need to make me a company, Sava."
 
 "Not my plan at all, Khamal. Just curious about where you are starting your therapy. Algebra or arithmetics hardly present a challenge for the University professor, right? What about calculus, number theory, or discrete mathematics?"
 
@@ -126,15 +126,17 @@ Zhutra hesitated. "I admit my foundations are rusty a bit."
 
 "Of course not. Our little exchange shows the advantages of alternative education. You may not be aware, Sava, but you sometimes exude an air of false superiority. We teach our students to treat people equally. The overemphasis on hard science often leads to limitation of emotional intelligence."
 
-"I concur, Khamal. Compared to you, compared to you, my emotional intelligence is toddler-like. But if mathematics resists, try to have a nice chat with her. Surely she won't reject reasonable debate on mutual emotions."
+"I concur, Khamal. Compared to you, my emotional intelligence is toddler-like. But if mathematics resists, try to have a nice chat with her. Surely she won't reject reasonable debate on mutual feelings."
 
 "What a joker you are!"
 
 When offended Zhutra had closed the door behind his back, Simone threw a pillow at Gromov. "I hope you didn't smash my little whispering. It was not easy to lead Khamal the right way. If you doubt him, he will stop trying midway."
 
-The playful act surprised him. Gone was the quilt-ridden woman he knew. She seemed carefree and almost happily childish - in the stark contrast to him, who wore burdens he did not want to bear.
+The playful act surprised Gromov. Gone was the quilt-ridden woman he knew. She seemed carefree and almost happily childish - in the stark contrast to him, who wore burdens he did not want to bear.
 
-"How and why did you make Zhutra count," he asked instead. "No harm in it, granted, but you certainly do care about Khamal's neglected education."
+"How and why did you make Zhutra count," he asked instead. "No harm in it, granted, but since when do you care about Khamal's neglected education?"
+
+But she did not offer the answer. Instead, she suddenly changed the topic.
 
 "When you locked up Khamal in the decompression chamber, did you intend to kill him?"
 
@@ -150,11 +152,11 @@ Gromov sneered: "You newfound mother, my virtual wife, love the relationship wit
 
 "I'm so sorry to hear that. She is amazing!"
 
-"She is a demoness born out of my adolescent consciousness. Looks don't matter. At least I did not scream in horror the first time I met her."  
+"She is a demoness born out of my adolescent subconsciousness. Looks don't matter. At least I did not scream in horror the first time I met her."  
 
 "She is amazing," repeated Simone with the insistence of a child who fears her parents consider a divorce.
 
-"Yes, she is amazing," Gromov patted her head soothingly. "Let's skip our wonderful family and come back to Khamal. What's with his newborn passion for mathematics. He was so out of character."
+"Yes, she is amazing," Gromov patted her head soothingly. "Let's skip our wonderful family and come back to Khamal. What's with his newborn passion for mathematics? He was so out of character."
 
 "I need to occupy him somehow," Simone shrugged. "Otherwise, he wouldn't survive your company."
 
@@ -172,7 +174,7 @@ When Simone realized how uncomfortable Gromov felt about the salutation, she blu
 
 "Oh, the demoness? Isn't she supposed to be cruel and heartless? You are lying, aren't you?"
 
-"She kept mentioning you fondly. But you have to understand that seclusion is worse for her. The time is running faster in her realm. You don't wish to be called Your Majesty, aren't you?"
+"She kept mentioning you fondly. The seclusion pains her. The time is running faster in the mother's realm. You don't wish to be called Your Majesty, aren't you?"
 
 "I wish one of my friends was here and called me so," Gromov replied. "But you are forbidden to use this one. Andrey Jerzinski will roll over the floor laughing if he has ever heard you."
 
