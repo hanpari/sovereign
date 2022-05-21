@@ -1,199 +1,207 @@
-# Dodávka zboží
+# Scapegoat
 
-After the dramatical events culminating in Simone's ascendation in the ranks of chosen ones (Gromov did not omit irony from his assesment), the situation on the ship calmed down. Only the roles switched.
+After the dramatical events culminating in Simone's ascension to the ranks of chosen ones (Gromov did not omit irony from his assessment), the situation on the ship calmed down. Only the roles switched.
 
-Uriah who had stood from the dead was slowly recovering while Simone fell into the state that reminded coma. According to Samara, it was only temporary occurence, the adaptation of the Simone's organism to the altered body, undertaken in the world, in which Doll had allegedly grown up.
+Uriah, who had stood from the dead, was slowly recovering while Simone fell into a coma-like state. According to Samara, it was a temporary adaptation of Simone's organism to the altered body, undertaken in the world in which Doll had allegedly grown up.
 
-Gromov assumed the world the same to which he had entered himself: the Samara's virtual realm. The details stayed unclear, left for his imagination, as Samara disappeared again without fulfilment of their honeymoon, so he started to worry whether their relationship was to remain strictly platonic.
+Gromov assumed the world to be Samara's virtual realm. The details stayed unclear, left for his imagination, as his wife disappeared again without completing their honeymoon, so he started to wonder whether their relationship was to remain strictly platonic.
 
-Hence, he spent most of his time in nursing Uriah and playing chess with Doll. To his delight, his skills had increased significantly, so he deemed himself a worthy rival even for the artifical inteligence.
+Hence, he spent most of his time nursing Uriah and playing chess with Doll. To his delight, his skills had increased significantly, so he deemed himself a worthy rival even for artificial intelligence.
 
 "I doubt this is the case, my dearest father," Doll corrected him once he had expressed such an opinion. "But it seems you have learned to distribute chess-solving tasks to the ship's computer. Congratulations!"
 
-Gromov considered the congratulation smug and insincere, but he could not denied the integration. When focusing, he could perceive the whole ship as an living, pulsing creature.  
+Gromov considered the congratulation smug and insincere, but he could not deny the integration. When focusing, he could perceive the whole ship as a living, pulsing creature.  
 
-Not that he was too keen on using this ability, as the interaction felt like vertigo, a new sensation for the seasoned battle pilot. Moreover, he made sure not to raise suspicion with Zhutra or Uriah, so everything supernatural stayed banned, even though Uriah would undoubtly find it thrilling and exciting.
+Not that he was too keen on using this ability, as the interaction felt like vertigo, a new sensation for the seasoned battle pilot. Moreover, he made sure not to raise suspicion with Zhutra or Uriah, so everything supernatural stayed banned, even though Uriah would undoubtedly find it thrilling and exciting.
 
-As for Zhutra, the lonely man attempted to ask about the missing student; one day, he even tried to knock on the door of Simone's cabine, but to no avail.
+As for Zhutra, the lonely man attempted to ask about the missing student; one day, he even tried to knock on the door of Simone's cabin, but to no avail.
 
-Cemented in his conviction he fell into hand of a ruthless sadist, Zhutra did his best to avoid Gromov. Once they met in the corridor, Zhutra pressed himself to the wall in fear he would disrupt Gromov's personal space. The latter offer him a friendly smile:
+Cemented in the conviction that he fell into the hand of a ruthless sadist, Zhutra did his best to avoid Gromov. Once they met in the corridor, Zhutra pressed himself to the wall in fear he would disrupt Gromov's personal space. The latter offered him a friendly smile:
 
-"I hope you are not bored, Khamal," he said. "I'm a bit worried to leave you alone. But Simone and I, how to put it midly, the bed's trembling, when we are occupied, so we do not have time to entertain you."
+"Hope you aren't bored, Khamal," he said. "I'm a bit worried about leaving you alone. But Simone and I, how to put it mildly, the bed's trembling when we are occupied, so we do not have time to entertain you."
 
 He hugged Zhutra's shoulder amicably. Tactfully, the man tried to get away, but since the Synthesis, Gromov's strength soared to an inhuman level, so he could just squeeze the life out of his victim if he were inclined to.
 
-Should Gromov adopt Doll's perspective, Zhutra would become a lower lifeform, not worthy of any consideration, mere livestock or a pest. Even though Gromov did not feel the burning hartred for the living, he still doubt the importance of Zhutra for the human society.
+Should Gromov have adopted Doll's perspective, Zhutra would become a lower lifeform, not worthy of any consideration, mere livestock or pest. Even though Gromov did not feel the burning hatred for the living, he still doubted the meaning of Zhutra's existence.
 
-It was not his first time he thought this way. But if he could restrain himself when Colonel Steiner had been sending pilots and gunners to their deaths, he had no reason to starting his murdering spree with Zhutra whose only sin stayed the fact he had been raised as an useless parasite.
+It was not the first time he thought this way. But if he could restrain himself when Colonel Steiner had been sending pilots and gunners to their deaths, he had no reason to start his murdering spree with Zhutra, whose only sin was the fact he had been raised as a useless parasite.
 
 "No need to worry," Zhutra rashed to a quick response. "Glad you both get along so well. Who would expect..."
 
 "Expect what?"
 
-"Nothing, nothing. Just pondering aloud. It was a couple of days since I've met her. Is she alright?"
+"Nothing, nothing. Just pondering aloud. It was a couple of days since I met her. Is she alright?"
 
 "Absolutely fine. Sleeping all the time. You better check her yourself."
 
 "Not necessary.
 
-"To není potřeba. Samozřejmě, naprosto chápu, že je unavená."
+"I do insist."
 
-"Trvám na tom."
+Gromov towed Zhutra to the door of the cabinet and unlocked them. Like Sleeping Beauty, Simone was lying in bed under a neatly arranged duvet, raising and falling with the rhythm of her breath. Seeing no proof of excessive violence, Zhutra did not overstay his welcome and backed away under the pretext of not waking her up.
 
-Gromov odvedl Zhutru ke dveřím kabiny a odemknul je kartou. Simona ležela na lůžku, ne nepodobná na Šípkovou Růženku, pod pečlivě srovnanou přikrývkou, která se zvedala s rytmem jejího dechu. Nic nenasvědčovalo tomu, že by byla podrobená přehnanému násilí, což Zhutrovi stačilo, aby z místnosti rychle couval pod záminkou, že nebude ženu budit.
+Before he could leave, Simone moved.
 
-Dříve než mohl utéct, Simona se pohnula.
+"Wait for a second, Khamal," she said in the crispy, singing voice. "Stay still!"
 
-"Počkej, Khamale," řekla jasným zpěvavým hlasem. "Stůj!"
+Dressed in a nightgown, Simone stood up, poured water into the glass, and drank it thirstily.
 
-V noční košili, do které ji převlékla Panenka, Simona vstala, nalila si sklenici vody a žíznivě ji vypila.
+"I'm great," she responded to Gromov's inquiring glance. "I'm grateful for the chance you gave me, my dearest..."
 
-"Cítím se skvěle," odpověděla na Gromovův tázavý pohled. "Jsem nesmírně vděčná, za šanci, kterou jsi mi dal, můj nejdražší..."
+Being sure she intended to use Doll's favorite salutation, Gromov smirked, amused he had gained another daughter. And he did not even sleep with Samara. If things proceeded this way, he would become the father of an endless crowd without being physically engaged.
 
-Gromov, který si byl jistý, že chtěla použít oblíbené Panenčino oslovení, se ušklíbl při představě, že získal už druhou dceru, a to ještě se Samarou nespal. Tímhle tempem se mohl stát otcem zástupů, aniž by se angažoval po fyzické stránce.
+Thankfully, Simone was clever enough to stop before Zhutra could marvel at what kind of games they had enjoyed in bed. Stretching up, she watched her teacher with a naughty and gleeful expression.
 
-Naštěstí měla Simona dost rozumu, aby se včas zarazila, než Khamala navedla na scestné myšlenky, týkající se hrátek mezi nimi. Takže se jen protáhla a sledovala Zhutru s kapkou škodolibosti.
+"What an incredible enjoyment," she purred. "I met a new world, broadened my horizons, and my body is not the same anymore. All that thanks to Sava."
 
-"Neuvěřitelný zážitek," zavrněla. "Poznala jsem nový svět, objevila nové obzory. Moje tělo už není stejné. A to vše díky Savovi."
+While Zhutra failed to recognize the hidden meaning behind her words, Gromov inspected Simone with his discerning eyes. Her brain changed, reminded a mix of the artificial and human aura. She had every right to claim that Samara was her mother now.
 
-"To je báječné," drmolil Zhutra a rychle couval ze dveří. "Neskutečné! O-ohromné! Já... dělal jsem si starosti. Jsem to ale hlupák."
+"Wonderful, wonderful!" Zhutra gabbled and, once again, tried to run away. "Splendid! Joy-ous! I... I was worrying without reason. Silly me!"
 
-"Ne, naopak!"
+"Quite the contrary!"
 
-Gromov si všiml, že Simoniny oči ztratily svou nazelenalou barvu a nyní se v nich odrážela temná modř hlubokého moře. Za nimi mohl pozorovat neobvyklou mozkovou aktivitu, svazky energie zamířené na unikající cíl, mizící v Zhutrově těle.
+There was an unusual activity within Simone's frontal lobe: a distinct sparkle, streamlined to Simone's optic nerves and irises, rendering them almost dark blue with bulging retinal blood vessels.
 
-"Jsi můj nejlepší přítel, Khamale, že je to tak?" Simona pronesla se zvláštní intonací, jako kněz, když zpívá litanii.
+"You are my best friend, Khamal, aren't you?" Simona asked in a weird intonation, a priest singing monotonous litany.
 
-"Ano, Simonko, to víš, že ano."
+Hypnotized, Zhutra was not able to snap out of her demanding sight, attracted as a cobra to a fakir's flute.
 
-Kdyby Gromov neviděl zářící spojení mezi nimi, myslel by si, že se žena snaží Zhutru zhypnotizovat. Trpasličí Adonis se ocitl v pasti neznámé moci a reagoval na ni jako kobra na fakírovu flétnu.
+"Yes, Simone. You know I am."
 
-"Vsadím se, že pro mne uděláš cokoliv."
+"I bet you'll do anything for me."
 
-"Naprosto."
+"Absolutely!"
 
-"Chápeš, že nebýt tady Savy, nebyl bys naživu?"
+"Do you understand that Sava saved your life?"
 
-"Určitě."
+"Yes, I do."
 
-"Musíš mu být vděčný, Khamale."
+"You have to be thankful, Khamal."
 
-"Budu."
+"I will."
 
-"To, že tě vyslýchal v přetlakové komoře byla jen tvá chyba."
+"He interrogated you in the decompression chamber for a good reason. It was your fault not to tell Captain Gromov the truth."
 
-"Ano, stydím se za to."
+"Yes, I am so ashamed."
 
-"Škoda, že máš proto poškozený mozek a spoustu věcí si nepamatuješ."
+"A pity your brain has been damaged, and you cannot remember things."
 
-Fascinovaný Zhutra vážně odkýval její slova.
+Fascinated, Zhutra nodded seriously.
 
-"Mám poškozený mozek," opakoval se slzami v očích. "Nic si nepamatuji."
+"I have a damaged brain," he repeated with tears in his eyes. "I can't remember anything."
 
-"Ale nic není ztraceno," pokračovala Simona s líbezným úsměvem. "Nemusíš se bát. Stačí jen počítat. Každou volnou chvíli. V lodní knihovně najdeš spoustu příkladů z matematiky. Co budeš na lodi, budeš procvičovat svůj mozek. Nebudeš mít čas na nic jiného. Jenom na matematiku. Rozumíš? To pomůže! A teď můžeš jít, Khamale."
+"But do not despair," continued Simone kindly. "Fear not. You need to count. Every moment! In the ship library, you find plenty of mathematical exercises. While you are on the ship, you need to practice. Minute after minute with no rest. Understand? This is the remedy! And you can go now."
 
-Když se svazek energie vytratil, Simona se zapotácela a zakryla si oči. "Běž, Khamale, běž," vybídla ho netrpělivě. "Potřebujeme se Savou soukromí."
+When the sparkle disappeared, Simone staggered and covered her bloodshot eyes. "Go, Khamal, go," she prompted him impatiently. "Sava and I would appreciate privacy."
 
-"Jistě. Já jen..."
+"Sure! Only I ..."
 
-Omámený Zhutra se obrátil na Gromova: "Myslím, že bych potřeboval učebnice matematiky. Najdou se tady nějaké?"
+Besotted, Zhutra turned towards Gromov: "I think I can use some textbooks on mathematics. Can I have one?"
 
-"Spousty," ujistil ho Gromov s pobaveným úsměvem. "Zesnulý Luciano pravda holdoval jiným disciplínám, ale také rád předstíral, že je polyhistor, proto žádný strach. Budeš mít příležitost obcovat s královnou věd do alelujá. Ovšem napřed bych se rád zeptal, co se přihodilo? Vždycky jsem měl dojem, že zastánci alternativního vzdělání nekladou na matematiku přehnaný důraz."
+"Whatever you fancy." Amused, Gromov reassured him. "Deceased Luciano might have pursued different disciplines, but he loved to pretend he was a polyhistor. You'll have countless opportunities to enjoy the queen of science ad libitum. But what happened? I was under the impression the alternative education does not emphasize mathematics."
 
-Gromovova narážka ubohého profesora vyburcovala z letargie.
+The insult stirred the poor professor out of his lethargy.
 
-"To rozhodně ne," zamával divoce rukama. "Veřejnost má zkreslené názory na naši instituci. Může být, že se zaměřujeme na jiné aspekty vzdělávání, ale nikdo nemůže upřít naši absolventům obrovskou dávku kreativity."
+"A false accusation," he waved his hands wildly. "The public is fed with biased propaganda. We may focus on different aspects of knowledge, but no one denies our graduates excel in huge creativity."
 
-Simona, které unaveně odpočívala na posteli, vydala prapodivný zvuk.
+Resting in a chair, Simone made an indistinguishable sound.
 
-"Děje se něco?"
+"What was it?"
 
-"Ovšemže ne, Khamale. Jen jsem chtěla potvrdit, cos řekl. Obrovská dávka kreativity. Lépe bych to sama neřekla."
+"Oh, nothing, Khamal. Just wanted to confirm your words. Huge creativity, no doubt!"
 
-Zhutra se podíval na Gromova, jako by ho podezříval, že Simonu nakazil dávkou nevítaného sarkasamu, ale Gromov se tvářil jako neviňátko.
+Zhutra looked at Gromov as if he suspected the man of injecting a dose of sarcasm into Simone's veins, but Gromov sported a face of an innocent baby.  
 
-"Omluvte mne, prosím," pokračoval Zhutra neobratně. "Zajdu si do lodní knihovny. Člověk se neustále učí. Doprovázet mne nemusíš, Savo."
+"If you excuse me," Zhutra went on clumsily. "I shall visit the ship library. Learning till the end. No need to make me a company, Sava."
 
-"To jsem neměl v úmyslu," ujistil ho Gromov. "Jen jsem zvědavý, odkud hodláš začít? Bylo by trapné pro univerzitního profesora si vybrat učebnice aritmetiky nebo algebry, co říkáš? Kalkulus, topologie, diskrétní matematika, teorie čísel, to jsou oblasti, kterým se jistě budeš věnovat."
+"Not my plan at all, Khamal. Just curious about where you are starting your therapy. Algebra or arithmetics hardly present a challenge for the University professor, right? What about calculus, number theory, or discrete mathematics?"
 
-Zhutra zaváhal. "Přiznám se, že budu potřebovat osvěžit základy."
+Zhutra hesitated. "I admit my foundations are rusty a bit."
 
-"V tom případě bude lepší, když se podíváš na mezi elektronické knihy. Luciano se cenil na víc, než na učebnice pro základní školy. Jako estét měl pravděpobně potíže sehnat je v kožené vazbě s ozdobným písmem."
+"In this case," Gromov did not hide his contempt, "you rather search the e-library. Luciano stood above basic stuff. As an estate, he probably had trouble to find elementary school books bound in leather with golden ornamental letters."
 
-"Neřekl jsem, že potřebuji učebnice pro základní školy. To je například výhoda alternativního vzdělávání. Chápu, že si to, Savo, neuvědomuješ, ale pokaždé, když s tebou jednám, mám dojem, že se mnou mluvíš s pocitem nadřazenosti. My učíme naše studenty, aby s každým jednali jako rovný s rovným. Často jsem si všiml, že důraz kladený na tvrdé vědy vede k omezení emoční intelignce."
+"I didn't say I was after books for elementary school. I'm not that rusty!"
 
-"To můžu potvrdit," Gromov pronesl vážně. "Pokud jde o emoční inteligenci, cítím se v porovnání s tebou jako nevyvinuté batole. Pokud ti matematika nepůjde podle plánu, zkus se s ní vlídně domluvit. Určitě bude přístupná rozumným argumentům."
+"Really?"
 
-"Ty jsi ale šprýmař!"
+"Of course not. Our little exchange shows the advantages of alternative education. You may not be aware, Sava, but you sometimes exude an air of false superiority. We teach our students to treat people equally. The overemphasis on hard science often leads to limitation of emotional intelligence."
 
-Když uražený Zhutra za sebou zavřel dveře, Simona hodila po Gromovovi polštář. "Doufám, že jsi nerozbil moje malé našeptávání. Nebylo lehké Khamala navést správným směrem. Když budeš zpochybňovat jeho schopnosti, mohl by se vzdát předem."
+"I concur, Khamal. Compared to you, compared to you, my emotional intelligence is toddler-like. But if mathematics resists, try to have a nice chat with her. Surely she won't reject reasonable debate on mutual emotions."
 
-Gromov ji změřil pohledem. Nebylo divu, že Zhutru mátla. I Gromov, který ji znal krátce, dokázal rozpoznat, že se chová neobvykle - jako šťastný člověk, který nemá žádné starosti. On naopak, jak si hořce uvědomoval, svou cestou vesmírem jen přibral zátěž, o kterou nestál.
+"What a joker you are!"
 
-"Proč a jak jsi ho nutila počítat?" zeptal se raději. "Nebudu se přít, že mu matematika neškodí, ale jistě tu nešlo o Khamalovo zanedbané vzdělání."
+When offended Zhutra had closed the door behind his back, Simone threw a pillow at Gromov. "I hope you didn't smash my little whispering. It was not easy to lead Khamal the right way. If you doubt him, he will stop trying midway."
 
-"Když jsi zavřel Khamala do přetlakové komory, měl jsi ho v úmyslu zabít?"
+The playful act surprised him. Gone was the quilt-ridden woman he knew. She seemed carefree and almost happily childish - in the stark contrast to him, who wore burdens he did not want to bear.
 
-"Samozřejmě že ne. Proč bych se potom obtěžoval vás zachraňovat? Někteří lidé ale lépe spolupracují pod tlakem."
+"How and why did you make Zhutra count," he asked instead. "No harm in it, granted, but you certainly do care about Khamal's neglected education."
 
-"Myslela jsem si to. To ovšem nic nemění na tom, že chudák Khamal má dojem, že unikl jisté smrti."
+"When you locked up Khamal in the decompression chamber, did you intend to kill him?"
 
-"Divadlo ve mně ztratilo talent."
+"Of course not. What is the point of rescuing someone to kill him afterward? But some stubborn people cooperate more willingly if under pressure."
 
-"Když jsem se ocitla ve světě naší matky," pokračovala Simona, "elfové, kteří tam žijí, se ke mně chovali jako k princezně. Byla to báječná zkušenost. Pomáhali mi pochopit, jak se změnilo mé tělo a má mysl. Má matka trvala na tom, abych ti příliš neprozrazovala."
+"I thought so. But Khamal thinks otherwise. He is convinced he had a narrow escape out of clutches of death."
 
-Gromov se ušklíbl: "Tvá novopečená matka, čili má virtuální manželka, má ráda vztah s tajemstvím. Nemůžu říct, že by se mi věnovala tolik jako tobě."
+"What can I say? Maybe you've inherited your superior acting skill from me."
 
-"To je mi líto. Ona je skvělá!"
+"When my mother brought me to her world," Simone continued, "the elves living there treated me like a royal princess. They helped me understand the change I had undertaken. But my mother wanted me to keep it secret from you."
 
-"Je to démon z hlubin mého pubertálního podvědomí. Ale jak se říká, na vzhledu nezáleží. Alespoň jsem nekřičel hrůzou, když jsem ji poprvé potkal."
+Gromov sneered: "You newfound mother, my virtual wife, love the relationship with mystery. I can't say she gave me the same level of attention you had from her."
 
-"Ona je skvělá," opakovala Simona s urputností dítětě, které se bojí, že by se její rodiči mohli chtít rozvést.
+"I'm so sorry to hear that. She is amazing!"
 
-"Samozřejmě," uklidnil ji Gromov. "Nebudeme řešit naše pozoruhodné rodinné vztahy. Vraťme se ke Khamalovi a jeho nově objevené vášni pro matematiku."
+"She is a demoness born out of my adolescent consciousness. Looks don't matter. At least I did not scream in horror the first time I met her."  
 
-"Musela jsem ho zaměstnat," pokrčila Simona rameny. "Jinak by jsi ho měl na svědomí."
+"She is amazing," repeated Simone with the insistence of a child who fears her parents consider a divorce.
 
-"To je trochu přehnané. Khamal možná není mým oblíbeným pasažárem, ani se naštěstí nestal mým synem, ale z mé strany mu nic nehrozí."
+"Yes, she is amazing," Gromov patted her head soothingly. "Let's skip our wonderful family and come back to Khamal. What's with his newborn passion for mathematics. He was so out of character."
 
-"Opravdu ne?"
+"I need to occupy him somehow," Simone shrugged. "Otherwise, he wouldn't survive your company."
 
-"Opravdu. Leda že bys věděla o něčem, o čem se má milovaná manželka zapomněla zmínit."
+"Oh, aren't you exaggerating? Khamal is neither my favorite passenger nor my recently acquired son (thank goodness), but I won't harm him."  
 
-"Můj drahý otče," začala Simona tónem a oslovením, které z ní udělaly Panenčino dvojče.
+"Honestly?"
 
-"Prosím ne!"
+"Honestly. Unless you know of something, your fiendish mother forgot to tell me."
 
-Když si uvědomila, jak nezvyklé je pro Gromova o ní uvažovat jako o dceři, Simona se zarazila a začervenala se. "Omlouvám se. Hovořila jsem příliš dlouho s matkou a s elfy, proto se zapomínám. V matčině zemi ubíhá čas tak, jak ona stanoví. Předpokládám, že by se ti nezamlouvalo, kdybych ti říkala Vaše královské veličenstvo."
+"My dearest father," Simone addressed him in a manner that made her Doll's twin.
 
-"Naopak, to by se mi zamlouvalo velmi," odtušil Gromov a vzpomněl si na Andreje. "Ale tak už mi říkal jeden přítel a jak jsem ho znal, jenom pomyšlení na to, že mne tak někdo oslovuje ve vší vážnosti, by ho donutilo se válet smíchem po podlaze."
+"Not that! Dearest my ass," protested Gromov. So far, he had been using their alleged relation only mockingly.
 
-"Já také netrvám na tom, aby náš vztah byl takto omezený," prohlásila Simona významně. "Pokud by naše matka souhlasila, pak..."
+When Simone realized how uncomfortable Gromov felt about the salutation, she blushed: "I apologize. The time I spent with elves and my mother was too long. No one would call you otherwise there. My mother craves for you."
 
-Když Gromov pochopil, kam Simona směřuje, uvědomil si, že bude lepší nepokračovat.
+"Oh, the demoness? Isn't she supposed to be cruel and heartless? You are lying, aren't you?"
 
-"Proč bych měl Zhutrovi ublížit?" zeptal se raději.
+"She kept mentioning you fondly. But you have to understand that seclusion is worse for her. The time is running faster in her realm. You don't wish to be called Your Majesty, aren't you?"
 
-"Protože já v porovnání s tebou nejsem nic."
+"I wish one of my friends was here and called me so," Gromov replied. "But you are forbidden to use this one. Andrey Jerzinski will roll over the floor laughing if he has ever heard you."
 
-"Jako studentka University Osvícené mysli by ses neměla tolik podceňovat."
+"Suits me fine," Simone proclaimed meaningfully. "Our relationship doesn't need those restrictions. I am sure my mother would agree... Why should you suffer anymore?"
 
-"Nemám genetickou výbavu, abych uměla plně využívat schopnosti, které mi má matka věnovala. Abych se dostala do Khamalovy hlavy, musela jsem působit na jeho skryté tajné obavy, na už existující hrůzu z poškození mozku. Dokud se nenaučíš ovládat své pole, pak pro Khamala znamená být v tvojí přítomnosti neustálý stres."
+When Gromov understood what was on Simone's mind, he changed the topic at once.
 
-"Nic s čím bych se nemohl smířit, má milovaná dcero," ušklíbl se Gromov a mrkl na ni. "Pěstovat v Zhutrovi pocit méněcennosti je jedna z mála rozkoší, které mi život přináší."
+"Why is Khamal in danger in my company?"
 
-Simona jeho úsměv neopětovala: "Jestliže budeš na něj tak působit, posíláš pocit jeho nedostatečnosti do té míry, že ho pomalu, ale jistě přivedeš k sebevraždě. Nebude tomu vzdorovat příliš. Nakonec se oběsí s vědomím, že by bylo pro svět lepší, kdyby neexistoval."
+"Because I am nothing compared to you!"
 
-"Někdo by mohl namítnout, že by to byla první rozumná věc, kterou ve svém životě podnikl," zamumlal Gromov.
+"A student of Enlightened Mind not brimming with self-confidence?"
 
-"Proto jsem ho poslala počítat příklady," vysvětlila Simona. "Zaměstná se a půjde ti z cesty. Tvá nevlídná přítomnost na něj působí jako koroze. Proto když ho příště potkáš, buď na něj laskavý i v myšlenkách."
+"Compared to yours, my genes are lacking," Simone explained. "My powers are limited. To brainwash Khamal, I could only influence the hidden fear lingering in his head. But you are different. Unless you learn to tame your powers, your presence corrodes Khamal's self-esteem."
 
-"I v myšlenkách?" zděsil se Gromov. "Říká se, že rodina od svých otců vyžaduje sebeobětování, ale tohle je příliš. Nejsem snad nepřítel lidstva? A kde se vůbec v tobě vzalo tolik laskavého porozumění pro Zhutrovu psyché? Soudě podle tvého deníku, měla bys být první, kdo mu podá provaz."
+Gromov sneered, "Nothing I would feel too sorry about, my dearest daughter. To grow Khamal's sense of unworthiness remains the only pleasure I have right now."
 
-"Možná."
+She did not smile back. "If you continue doing so, his self-esteem will fall to the bottom, leading him to suicide. He won't last for too long. We will find him hanged under the ceiling."
 
-Simona si zjevně nechtěla připomínat vlastní minulost. "Je to ale v našem zájmu. Nyní, i když se Vejce vylíhlo, DOZOR nic netuší, proto můžeme Khamala použít k odvedení pozornosti. Ve chvíli, kdy si odveze prázdnou skořápku, agenti se zaměří na něj. Ve chvíli, kdy se Vejce pokusí prodat, bude litovat, že se narodil."
+"The first stunt in his life I would approve of," Gromov mumbled.
 
-Při vědomí, že Simona odsoudila chladnokrevně Zhutru na smrt, Gromov pochopil, že se ocitl ve společnosti monster.
+"This is why I've sent him to do maths. He must stay out of your way, or your influence would slowly erode his will to live. Next time you'll meet Khamal, be kind even in your thoughts."
 
-"Chápu," řekl nakonec. "Myslím, že v takovám případě dokáži být na toho troubu laskavý."
+"In my thoughts," protested Gromov. "Family life is said to be harsh on fathers, but this is too much. Am I not the enemy of humankind? Anyway, why do you care so much for his labile psyche? The person from your diary would be the first to sell Khamal the rope."
+
+"Perhaps."
+
+Not fond of her past, Simone did not play the game. "Keeping Khamal alive is in our best interest," she insisted. "Now, even though the Egg has hatched, DOZOR does not know anything. Khamal may distract them and buy us some time. The moment he tries to sell the empty shell, the agents will hunt him down."
+
+The cold indifference with which she wrote off poor Zhutra let Gromov's hopes crumble to dust. New happy Simone did not cease to be a monster.
+
+"I see," he said. "In this case, I have no problem treating that moron kindly and with tender affection."
