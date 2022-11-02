@@ -12,15 +12,15 @@ Hence, he spent most of his time nursing Uriah and playing chess with Doll. To h
 
 Gromov considered the congratulation smug and insincere, but he could not deny the integration. When focusing, he could perceive the whole ship as a living, pulsing creature.  
 
-Not that he was too keen on using this ability, as the interaction felt like vertigo, a new sensation for the seasoned battle pilot. Moreover, he made sure not to raise suspicion with Zhutra or Uriah, so everything supernatural stayed banned, even though Uriah would undoubtedly find it thrilling and exciting.
+Not that he was too keen on using the ability, as the interaction felt like vertigo, a new sensation for the seasoned battle pilot. Moreover, he made sure not to raise suspicion with Zhutra or Uriah, so everything supernatural stayed banned, even though Uriah would undoubtedly find it thrilling and exciting.
 
 As for Zhutra, the lonely man attempted to ask about the missing student; one day, he even tried to knock on the door of Simone's cabin, but to no avail.
 
-Cemented in the conviction that he fell into the hand of a ruthless sadist, Zhutra did his best to avoid Gromov. Once they met in the corridor, Zhutra pressed himself to the wall in fear he would disrupt Gromov's personal space. The latter offered him a friendly smile:
+Cemented in the conviction that he fell into the hands of a ruthless sadist, Zhutra did his best to avoid Gromov. Once they met in the corridor, Zhutra pressed himself to the wall in fear he would disrupt Gromov's personal space. The latter offered him a friendly smile:
 
-"Hope you aren't bored, Khamal," he said. "I'm a bit worried about leaving you alone. But Simone and I, how to put it mildly, the bed's trembling when we are occupied, so we do not have time to entertain you."
+"Hope you aren't bored, Khamal," he said. "I'm a bit worried about leaving you alone. But Simone and I, how to put it mildly, the bed's rocking and rolling, so we don't have time to entertain you."
 
-He hugged Zhutra's shoulder amicably. Tactfully, the man tried to get away, but since the Synthesis, Gromov's strength soared to an inhuman level, so he could just squeeze the life out of his victim if he were inclined to.
+He emraced Zhutra's shoulder amicably. Tactfully, the man tried to get away, but since the Synthesis, Gromov's strength soared to an inhuman level, so he could just squeeze the life out of his victim if he were inclined to.
 
 Should Gromov have adopted Doll's perspective, Zhutra would become a lower lifeform, not worthy of any consideration, mere livestock or pest. Even though Gromov did not feel the burning hatred for the living, he still doubted the meaning of Zhutra's existence.
 
@@ -32,7 +32,7 @@ It was not the first time he thought this way. But if he could restrain himself 
 
 "Nothing, nothing. Just pondering aloud. It was a couple of days since I met her. Is she alright?"
 
-"Absolutely fine. Sleeping all the time. You better check her yourself."
+"Absolutely fine. Sleeping like a log. You better check her yourself."
 
 "Not necessary.
 
@@ -42,19 +42,19 @@ Gromov towed Zhutra to the door of the cabinet and unlocked them. Like Sleeping 
 
 Before he could leave, Simone moved.
 
-"Wait for a second, Khamal," she said in the crispy, singing voice. "Stay still!"
+"Wait for a second, Khamal," she said in a crispy, singing voice. "Stay still!"
 
 Dressed in a nightgown, Simone stood up, poured water into the glass, and drank it thirstily.
 
 "I'm great," she responded to Gromov's inquiring glance. "I'm grateful for the chance you gave me, my dearest..."
 
-Being sure she intended to use Doll's favorite salutation, Gromov smirked, amused he had gained another daughter. And he did not even sleep with Samara. If things proceeded this way, he would become the father of an endless crowd without being physically engaged.
+Being sure she intended to use Doll's favorite salutation, Gromov smirked, amused he had gained another daughter. And he even did not sleep with Samara. If things proceeded this way, he would become the father of an endless crowd without being physically engaged.
 
-Thankfully, Simone was clever enough to stop before Zhutra could marvel at what kind of games they had enjoyed in bed. Stretching up, she watched her teacher with a naughty and gleeful expression.
+Thankfully, Simone was clever enough to stop before Zhutra could marvel at what kind of games they had been enjoying. Stretching up, she watched her teacher with a naughty and gleeful expression.
 
-"What an incredible enjoyment," she purred. "I met a new world, broadened my horizons, and my body is not the same anymore. All that thanks to Sava."
+"What an incredible experience," she purred. "I met a new world, broadened my horizons, and my body is not the same anymore. All that thanks to Sava."
 
-While Zhutra failed to recognize the hidden meaning behind her words, Gromov inspected Simone with his discerning eyes. Her brain changed, reminded a mix of the artificial and human aura. She had every right to claim that Samara was her mother now.
+While Zhutra failed to recognize the hidden meaning behind the words, Gromov inspected Simone. Her brain changed, exuding a mix of the artificial and human aura. She had every right to claim that Samara was her mother now.
 
 "Wonderful, wonderful!" Zhutra gabbled and, once again, tried to run away. "Splendid! Joy-ous! I... I was worrying without reason. Silly me!"
 
@@ -62,7 +62,7 @@ While Zhutra failed to recognize the hidden meaning behind her words, Gromov ins
 
 There was an unusual activity within Simone's frontal lobe: a distinct sparkle, streamlined to Simone's optic nerves and irises, rendering them almost dark blue with bulging retinal blood vessels.
 
-"You are my best friend, Khamal, aren't you?" Simona asked in a weird intonation, a priest singing monotonous litany.
+"You are my best friend, Khamal, aren't you?" Simona asked in a weird intonation, like a priest singing monotonous litany.
 
 Hypnotized, Zhutra was not able to snap out of her demanding sight, attracted as a cobra to a fakir's flute.
 
@@ -76,7 +76,7 @@ Hypnotized, Zhutra was not able to snap out of her demanding sight, attracted as
 
 "Yes, I do."
 
-"You have to be thankful, Khamal."
+"You must be thankful, Khamal."
 
 "I will."
 
@@ -118,7 +118,7 @@ Zhutra looked at Gromov as if he suspected the man of having injected a dose of 
 
 Zhutra hesitated. "I admit my foundations are rusty a bit."
 
-"In this case," Gromov did not hide his contempt, "you rather search the e-library. Luciano stood above basic stuff. As an estate, he probably had trouble to find elementary school books bound in leather with golden ornamental letters."
+"In this case," Gromov did not hide his contempt, "you rather search the e-library. Luciano stood above basic stuff. As an esthete, he probably had trouble to find elementary school books bound in leather with golden ornamental letters."
 
 "I didn't say I was after books for elementary school. I'm not that rusty!"
 
@@ -152,11 +152,11 @@ Gromov sneered: "You newfound mother, my virtual wife, love the relationship wit
 
 "I'm so sorry to hear that. She is amazing!"
 
-"She is a demoness born out of my adolescent subconsciousness. Looks don't matter. At least I did not scream in horror the first time I met her."  
+"She is a demoness born out of my adolescent subconsciousness. Her looks don't matter. At least I did not scream in horror the first time I met her."  
 
 "She is amazing," repeated Simone with the insistence of a child who fears her parents consider a divorce.
 
-"Yes, she is amazing," Gromov patted her head soothingly. "Let's skip our wonderful family and come back to Khamal. What's with his newborn passion for mathematics? He was so out of character."
+"Yes, she is amazing," Gromov patted her head soothingly. "Let's skip our wonderful family and get back to Khamal. What's with his newborn passion for mathematics? He was so out of character."
 
 "I need to occupy him somehow," Simone shrugged. "Otherwise, he wouldn't survive your company."
 

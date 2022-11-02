@@ -22,9 +22,9 @@ The Rusty Asteroids earned its reputation thanks to an exaggerated yet popular T
 
 About twelve years ago, Gromov and his colleagues had attended the punishment mission to destroy an infamous drug dealer and smuggler's base.
 
-That man believed he could find safety in the asteroid ring, but his gangster-like behavior upset the locals to such an extent that they gladly revealed his coordinates to the AN agents. Gromov and Andrey Jerzinski went through their first space battles, chasing the criminals out of the sky. However, the antagonists fought desperately, adopting effective guerilla tactics.
+That man believed he could find safety in the asteroid ring, but his gangster-like behavior upset the locals, so they gladly revealed his coordinates to the AN agents. Gromov and Andrey Jerzinski went through their first space battles, chasing the criminals out of the sky. However, the antagonists fought desperately, adopting effective guerilla tactics.
 
-Andrey and his pilot got hit, drifted away, and were claimed dead even though their fighter had never been found. Nevertheless, Steiner insisted on reviving them afterward, being zealous about new life backups.
+Andrey and his pilot got hit, drifted away, and were claimed dead even though their fighter had never been found. Nevertheless, Colonel Steiner insisted on reviving them afterward, being zealous about new life backups.
 
 To dismiss unpleasant memories, Gromov focused on inspection of the documentation Mr. Cecil Shanks gave to him. Despite its old age, the freight ship seemed excellent, with detailed records of performed maintenance. The cargo consisted of spare parts and materials, which inhabitants of Rusty Asteroids needed to exist in the hostile environment. The price was more than favorable.
 
@@ -38,9 +38,9 @@ To dismiss unpleasant memories, Gromov focused on inspection of the documentatio
 
 Gromov snorted, "You ordered the deep software audit for three times in a row. Why? If the ship is docked, what did you expect to find?"
 
-Cecil Shanks hesitated and then continued: "Sava, I am not going to lie. The thing is, you are not the first customer to whom I've offered this beauty. But, unfortunately, each time we made a tour inside the ship, we stumbled upon some minor troubles or malfunctions. No serious issues, though."
+Cecil Shanks hesitated and then continued: "Sava, I am not going to lie. The thing is, you are not the first customer to whom I've offered this beauty. But, unfortunately, each time we made a tour inside the ship, we stumbled upon some minor trouble. No serious issues, though."
 
-Gromov read carefully one of the auditors' reports. "They confirmed the life-supporting system works normally, and excessive testing did not reveal any bugs. Do you call unreliable life support a minor issue, Shanks?"
+Gromov read carefully one of the auditors' reports. "They confirmed the life-supporting system worked normally, and excessive testing did not reveal any bugs. Do you call unreliable life support a minor issue, Shanks?"
 
 "Sounds bad, huh? Rest assured, the system performs well. The audits proved as much. They were false alarms. Trust me, Sava. My friend treated the old bark like a girl. He would never have allowed any shortcomings in maintenance. Check the bill of materials; they are all of the highest quality."
 
@@ -54,7 +54,7 @@ Cecil Shanks shrugged. "I'll tell you, and you'll take me for a lunatic."
 
 Another gulp of whiskey. Then, Cecil Shanks grabbed a photo frame from his desk and turned it to his visitor. In the picture, two men were smiling frantically. The first was the younger version of Cecil Shanks; the second one was a tall slim guy with sharp eyes and an unhealthy grey complexion.
 
-"This is Luciano, my best buddy," said Cecil Shanks with a slight sorrow. "He married my first ex-wife despite my fair warning here. The most upright fellow under the Sun who never deserved that bitch. I suspect he bought the freight ship to escape her nagging. He fell for her looks, the same mistake I had made, too. Do you want to see Jessica? She was staggering in her prime. Take my word on it."
+"This is Luciano, my best buddy," said Cecil Shanks with a slight sorrow. "He married my first ex-wife despite my fair warning. The most upright fellow under the Sun who never deserved that bitch. I suspect he bought the freight ship to escape her nagging. He fell for her looks, the same mistake I had made, too. Do you want to see Jessica? She was staggering in her prime. Take my word on it."
 
 "Not necessary."
 
@@ -64,7 +64,7 @@ Another gulp of whiskey. Then, Cecil Shanks grabbed a photo frame from his desk 
 
 "Perhaps his personality remained imprinted in the ship, and he sort of haunt it. Like a ghost, you see? It is the only reasonable explanation I can offer for those unexpected occurrences."
 
-Gromov had to suppress a smile hearing what Cecil Shanks call "reasonable," but he did not object to the paranormal beliefs since the situation had turned to its favor.
+Gromov had to suppress a smile hearing what Cecil Shanks call "reasonable," but he did not object to the paranormal beliefs if the situation had turned to its favor.
 
 "If Luciano haunts the ship, why should he approve of me?"
 

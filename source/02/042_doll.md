@@ -54,9 +54,9 @@ The fading whispering sounded like begging for mercy. On his lonely journeys, Lu
 
 Enraged, Gromov grabbed the doll under its chest and put it in the corner together with the tripod, the pallet, and paintbrushes.
 
-To become the absolute master of the spaceship, he had to find the board computer. Finally, Gromov found the dusty terminal on the table. He inserted the hardware key, which he received from Cecil Shanks, into the proper slot, and logged in as root.
+To become the absolute master of the spaceship, he had to find the board computer. Finally, Gromov found the dusty terminal on the table. He inserted the hardware key, which he received from Cecil Shanks, and logged in as root.
 
-Even though he had a shallow understanding of what he was doing, he had decided to follow the standard procedure of Space Forces, prescribed for taking over the enemy vessels.
+Even though he had a shallow understanding of what he was doing, he had decided to follow the standard procedure of Space Forces, prescribed for taking over of the enemy vessels.
 
 With no hesitation, he deleted all user accounts. Then, he created a new one with high-level permission, removed the hardware key, and logged in under his name.
 
@@ -74,11 +74,11 @@ RUN ALL TESTS?
 
 YES
 
-The doll stared at him with helpless and begging eyes from the corner, which greatly disturbed him. Since the progress bar indicated he had more than thirty minutes, he could not help himself. He had a habit of charging everything that needed to be charged at once.
+The doll stared at him with helpless and begging eyes from the corner, which greatly disturbed him. Since the progress bar indicated he had more than thirty minutes, he could not help himself. He had a habit of charging everything that needed to be charged.
 
-"Ridiculous," he thought while searching for a wireless tab. "One of the first things I do as the owner of the spaceship is taking care of a sex doll. Wait for a second, lady."
+"Ridiculous," he thought while searching for a wireless tab. "One of the first things I do as an owner of a spaceship is taking care of a sex doll. Wait for a second, lady."
 
-After the work was done, the doll spoke: "Hello, handsome. Do we know each other? Where is my Luciano?"
+After the work was done, the thing spoke: "Hello, handsome. Do we know each other? Where is my Luciano?"
 
 "Dead," Gromov said grimly. The doll imitated a living creature so flawlessly he almost regretted his tone.
 
@@ -98,7 +98,7 @@ After he touched her, she woke up and asked: "Do you have the privilege to comma
 
 "How?"
 
-"You can use a passphrase or a hardware key. I am sorry, but I cannot satisfy you before that. Thank you for your patience. Do you like to have a summary of my abilities?"
+"You can use the passphrase or the hardware key. I am sorry, but I cannot satisfy you before that. Thank you for your patience. Do you like to have a summary of my abilities?"
 
 A smirk followed the last sentence as if she could not wait a moment when she would be of fair use.
 
@@ -122,13 +122,13 @@ Feeling uncomfortably and slightly aroused, he stopped her: "Please, skip that a
 
 "No."
 
-Gromov guessed his ship is amongst them if Luciano had picked this model.
+Gromov guessed his ship was amongst them if Luciano had picked this model.
 
 The doll continued, "I can connect to the board computer and enable you to communicate with it more comfortably. Would you like me to do so?"
 
 "Can you do that?"
 
-"Of course, this spaceship board computer has the security access file to my interface. Oops, sorry. I just checked, and it seems somebody deleted my user account. I need user Sava Gromov to grant me access."
+"Of course! This spaceship's computer has the security access file to my interface. Oops, sorry. I just checked, and it seems somebody deleted my user account. I need user Sava Gromov to grant me access."
 
 At first, Gromov was reluctant to grant access the ship system to a doll manufactured by the company involved in erotic accessories. On the other hand, Luciano had done that before and still been able to travel safely. In the end, he permitted the doll only the basic rights.
 
@@ -136,21 +136,21 @@ At first, Gromov was reluctant to grant access the ship system to a doll manufac
 
 "Call me Captain Gromov."
 
-The AI of the doll misinterpreted her intentions. While he only did not want to get too familiar with a sex toy, the AI searched its database and came to a different conclusion: "Oh, you like to play the father-daughter game with me, Captain Gromov? I am a naughty girl, sometimes. Would you like to spank me?"
+The AI misinterpreted his intentions. While he only did not want to get too familiar with a sex toy, the AI searched its database and came to a different conclusion: "Oh, you like to play the father-daughter game with me, Captain Gromov? I am a naughty girl, sometimes. Would you like to spank me?"
 
 "Naughty my ass," Gromov mumbled.
 
 "No problem. Wait a second. In my accessories, there is a strapon."
 
-"Great! What? That lecherous Luciano!" Gromov cursed the previous owner. Was it even possible to spoil the doll in such a way?
+"Great! What? That lecherous Luciano!" Gromov cursed. Was it even possible to spoil that thing in such a way?
 
 "If you would like to invite a friend, I do not mind," the doll answered. "I can cook dinner for you."
 
 "You can even cook?"
 
-"Sure, I can. My data contains twenty thousand receipts from one hundred cuisines."
+"Surely I can. My data contains twenty thousand recipes from one hundred cuisines."
 
-Gromov rolled his eyes. What was the purpose of twenty thousand receipts in the spaceship, in which food storage was limited?
+Gromov rolled his eyes. What was the purpose of twenty thousand recipes in the spaceship, in which food storage was limited?
 
 CLINK! CLINK!
 
@@ -170,14 +170,14 @@ Under normal conditions, the ship got sterilized before the crew had boarded. Si
 
 "Alright."
 
-Gromov sat down and started the procedure. The moment he pressed the last key, a loud alarm sounded through all inner areas of the ship.
+Gromov sat down and pressed the key. A loud alarm sounded through all inner areas of the ship.
 
 "Security alert! Security alert! The sterilization will begin in ten minutes. I repeat, the sterilization procedure will begin in ten minutes. All exposed crew members are required to put the protective gear on! I repeat, all exposed crew members are required to put the protective gear on! From sterilization are excluded: the captain's cabin. I repeat, from sterilization are excluded: the captain's cabin. Counting down. Ten minutes to sterilization. Nine minutes and fifty-nine seconds to sterilization..."
 
 The artificial voice went on. When the countdown reached four minutes, someone suddenly hit the door, violently kicking on it.
 
-"Stop it now! Stop it now! I am here. I beg you. Stop it right now! I am here."
+"Stop it! Stop it now! I am here. I beg you. Stop it right now! I am here."
 
-Astonished, Gromov canceled the countdown at once, grabbed some steel bar, and jumped to the cabin's door.
+Astonished, Gromov canceled the countdown, grabbed some steel bar, and jumped to the cabin's door.
 
 "This is a ghost ship, indeed! Who is behind the door, dammit?"
