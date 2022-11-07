@@ -140,13 +140,13 @@ The two of them usually did not argue, given their special relationship. But the
 
 Gromov himself was never a man easy to bear long terms. The same went for Simone who could only act obedient (as it was part of her undercover backstory), but as it turned out, her original personality had a rebel and independent side, not compatible with the domineering and harsh SF captain. Uriah Uriah with his weak presence or Doll, who never showed any trace of opposition, suited Gromov's nature better.
 
-"You should calm down before you unleash the small thing behind your forehead, dumbass. Haven't you realized you've been crippling Khamal with every session of yours? His brain is growing gelatine, literally!"
+"You should calm down before you unleash the peanut-like jelly behind your forehead, dumbass. Haven't you realized you've been crippling Khamal with every session of yours? His brain is growing gelatine, literally!"
 
 As Simone's influence over Zhutra grew deeper, the unfortunate professor had been turning into a mindless counting puppet, devoid of any free will. It was questionable if he could even survive on his own without Simone's constant whispering.
 
 "Since when do you care about his well-being?"
 
-"Since the moment you tried to kill me," Gromov sneered despite the enormous headache she imposed on him. "Had it been someone else, you would already burn out his neural synapsis. Even I find it rather unpleasant. Stop broadcasting, laser kitty, or I may end up like a drooling idiot.
+"Since the moment you tried to kill me," Gromov sneered despite the enormous headache she imposed on him. "The last minutes very intensely. Had it been someone else, you would already burn out his neural synapsis. Even I find it rather unpleasant. Stop broadcasting, Laser Kitty, or I may end up like a drooling idiot.
 "Simone immediately covered her eyes with palms and mumbled: "Why didn't you say so sooner?"
 
 "Natural curiosity. You've developed the habit of mental whispering every time you wanted to achieve something. You turned Khamal and Uriah into well-tamed dogs, and recently, you overstepped your boundaries even with me."
@@ -157,5 +157,5 @@ Simone panicked: "It was not intentional. You have to trust me. I would never ha
 
 "So you were studying me instead? With what conclusions?"
 
-"That we are both walking disasters," answered Gromov grimly.
+"That each of us has become a walking disaster," answered Gromov grimly.
 

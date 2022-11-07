@@ -148,8 +148,8 @@ While Simone hesitated, Doll, who stood still behind her, started to glow with a
 
 But Simone refused to answer, watching Gromov with growing uneasiness.
 
-Without warning, Doll pushed the woman down on her knees: "Lower your hideous head, discourteous annoyance, and congratulate my dearest father. The enemy of humankind has been born! We all shall serve our master with diligence and alacrity."
+Without warning, Doll pushed the woman down on her knees: "Lower your hideous head, discourteous annoyance, and congratulate my dearest father. The Enemy of Humankind has been born! We all shall serve our master with diligence and alacrity."
 
 There was no protest from the humiliated woman, only tears slowly looking their way down on trembling chin.
 
-"So be it," Simone whispered at last. "So be it!"
+"So be it," Simone whispered at last. "So be it! The android is right. The purpose of the Egg was to create the Enemy of Humankind. I have no idea what it does mean. So you don't need to ask me."
