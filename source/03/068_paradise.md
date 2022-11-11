@@ -112,15 +112,17 @@ The ambiguous statement meant either that the freight ship had no Q-Field genera
 
 After a short hesitation, the first pilot announced: "Sir, if you have the Q-Field, we are out. We cannot risk any confrontation."
 
-"Quite the opposite, my friend," Gromov barked. "Q-field would incapacitate the model FI-21 if I had the generator. So I insist you followed the agreed procedure. I'm waiting for your lovely visit. Coffee or tea? Make your choice."
+"Quite the opposite, my friend," Gromov barked. "Q-Field would incapacitate the model FI-21 if I had it. But I don't. Still, I insist you followed the agreed procedure. I'm waiting for your lovely visit. Coffee or tea? Make your choice."
 
-"Sir, why are you doing this?"
+"Sir, why are playing so hard?"
 
 "Why? Is finishing my business here convincing enough? As you said yourself, the journey has been long. And the last thing I'd like to do is fly back with my unsold cargo."
 
 "Alright, then. But my colleague will keep a safe distance from your ship. Out of potential Q-Field jamming."
 
-"What is the safe distance in your opinion?" asked Gromov curiously. Q-Field characteristics stayed unknown to the public, so he wondered how the pilot would calculate its reach.
+Q-Field characteristics stayed unknown to the public, so Gromov wondered how the pilot would calculate its reach.
+
+"What is the safe distance in your opinion?" he asked curiously. 
 
 "I have no clue."
 

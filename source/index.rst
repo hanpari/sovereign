@@ -83,6 +83,7 @@ Sovereign by Pavel Morava
    :caption: The business
 
    03/067_shadow_of_prison
+   03/068_paradise
 
 .. toctree::
    :maxdepth: 2
