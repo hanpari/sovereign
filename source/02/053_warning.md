@@ -52,7 +52,7 @@ There was something gratifying in such a horrified expression. Under normal circ
 
 "Your reluctance makes you a culprit, I guess," Gromov sighed. "Look, beauty. We both are aware of the fact Professor Khamal brought a forbidden item on my ship. The consequences are given and clearly explained. You had agreed to my terms before you embarked on the ship. Even promises given under life-threatening situations need to be honored."
 
-Simone gasped: "You know about the egg? Have you been spying on us?"
+Simone gasped: "You know about the Egg? Have you been spying on us?"
 
 Gromov decided not to answer. He ordered instead: "Be so kind and call your partner for me. The moment you warn him or try to refute my order, I'll lock the door and let both of you die slowly of thirst and hunger. No kidding."
 

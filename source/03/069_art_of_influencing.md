@@ -1,6 +1,6 @@
 # Art of influencing people and making friends
 
-The maneuver of connecting two spaceships did not take long. The cooperation with the Paradise Base pilot was pleasant and reminded of the professionalism of SF personnel - at least of the better ones as Gromov inwardly admitted. He was reluctant to sing unconditional praises on Space Force soldiers just because he used to be part of them.
+The maneuver of connecting two spaceships did not take long. The cooperation with the Paradise Base pilot was pleasant and reminded of the professionalism of SF personnel - at least of the better ones as Gromov inwardly admitted. He was reluctant to sing unconditional praises on Space Forces' soldiers just because he used to be part of them.
 
 Uttering a sentence or two when the situation asked for mutual coordination, the approaching pilot worked silently. While aligning his fighter with the freight ship, the momentum dragged him too far; but he managed to re-aligned it by adjusting the thrust of side motors - a sign of superb mastery.
 

@@ -36,7 +36,7 @@ An embarrassing silence followed, broken only by the furious scratching of Zhutr
 
 The empty stare of disturbed Zhutra scared even Gromov, not to speak of poor Hawk who had not had the opportunity to observe Zhutra's metamorphosis from the beginning.
 
-"Please, do not mind my professor," Simone spoke up sweetly and reached her slender hand toward astonished Hawk. "Simone Yeuxbleux. And you are, sir?"
+"Please, do not mind my professor," Simone spoke up sweetly and reached her slender hand toward astonished Hawk. "Simone Yeuxbleu. And you are, sir?"
 
 The moment the man had made a mistake and gotten caught in her eyes, Gromov wished he had a place to hide away. Simone's eyes were blue like an ocean, similarly deceptive and treacherous, whispering the Siren’s song. But even without whispering, Hawk would lose to the alluring lady.
 

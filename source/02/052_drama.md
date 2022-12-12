@@ -8,7 +8,7 @@ Unceremoniously, he threw the accessories away, satisfied with the exquisite loo
 
 When the brushes had been cast out of the box, they fought back, and one sharp ink pen stabbed Gromov's palm.
 
-He was in the middle of arranging proprieties for the ongoing drama when he realized the dripping blood stained the mysterious egg, which he carefully situated in the "treasure" chest.
+He was in the middle of arranging proprieties for the ongoing drama when he realized the dripping blood stained the mysterious Egg, which he carefully situated in the "treasure" chest.
 
 "Oh mighty ghost of this ship, you won again!" Gromov shouted, smearing the blood over the smooth surface. "But the brave endure!"
 

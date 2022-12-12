@@ -48,7 +48,7 @@ Hawk, still sulking over his unfulfilled love affair, was appointed to be Gromov
 
 "I apologize for the uncivilized brute, Captain Gromov."
 
-Ali Ghazali, the second pilot from their first encounter and Hawk's inseparable companion, noticed how their guest's mouth twitched after being called by the nickname.  
+Ali Ghazali, the second pilot from their first encounter and Hawk's inseparable companion, noticed how their guest's mouth twitched after being called by the nickname.
 
 "I don't particularly mind," lied Gromov. However, to add salt to Hawk's injury, he spoke up: "Ali, you look exceptionally chic. Did you get a haircut?"
 
@@ -91,9 +91,9 @@ While the demoness bore his rant with a smug fox-like expression with an ironica
 
 "Too late," grunted Gromov, watching the demoness coming closer. The scent of roses and warming sensation overwhelmed him, soothing his anger that he forgot about the world and daydreamed of touching Samara's hair, combed up into delicate snake-like patterns.
 
-"I may forgive you," Gromov breathed out, violently keeping his arms along the body. The last remnants of conscience and abnormal willpower prevented him from embarrassing himself in front of two Angels.
+"I may forgive you," Gromov breathed out, violently keeping his arms along the body. The last remnants of consciousness and abnormal willpower prevented him from embarrassing himself in front of two Angels.
 
-Hawk heaved a sign of relief: "I won't you down, Big G."
+Hawk heaved a sign of relief: "I won't let you down, Big G."
 
 However, Samara shook her head: "My beloved husband, the time has not ripened yet. Our excruciating separation must continue."
 

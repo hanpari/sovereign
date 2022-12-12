@@ -130,7 +130,7 @@ Gromov sighed: "We both love having a conversation with intelligent people. So s
 
 "Let's say I decided to consider that eventuality. What exactly will happen if the Gift from the epitaph is awake?"
 
-Simone shook her head. "I have no idea, Sava. The egg-shaped object is often depicted in Elven sources. In fact, they made it a sacred symbol of their religion, but even they do not know what it represents. There is no proof that the Egg is the Gift."
+Simone shook her head. "I have no idea, Sava. The Egg-shaped object is often depicted in Elven sources. In fact, they made it a sacred symbol of their religion, but even they do not know what it represents. There is no proof that the Egg is the Gift."
 
 "Let's suppose to be that case."
 

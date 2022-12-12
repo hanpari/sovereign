@@ -107,7 +107,7 @@ We broke in. Like burglars. Talkies and Whinies too dumb to wear spacesuits. Oth
 
 ...
 
-The loot is fascinating. Everyone's happy. I wrote as much a vague report as possible and sent it. Probably a huge mistake. But what can I do? I cannot afford to lie openly. The egg was among the retrieved items. Hard to conceal the truth anyway.
+The loot is fascinating. Everyone's happy. I wrote as much a vague report as possible and sent it. Probably a huge mistake. But what can I do? I cannot afford to lie openly. The Egg was among the retrieved items. Hard to conceal the truth anyway.
 
 ...
 

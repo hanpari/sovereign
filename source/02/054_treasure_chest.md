@@ -98,7 +98,7 @@ Not minding poor Zhutra anymore, Gromov manually turned left the valve while wat
 
 The process was deliberately slow, causing the air to leave the room with ominous hissing.
 
-The slow and painful death awaited the man who stayed inside. But he still held the egg, satisfied with their reunion. The euphory began to disappear with dropping pressure.
+The slow and painful death awaited the man who stayed inside. But he still held the Egg, satisfied with their reunion. The euphory began to disappear with dropping pressure.
 
 Gromov decided it was time to proceed with the plan.
 
@@ -110,11 +110,11 @@ Zhutra was pointing frantically at the ventilation holes from which the air was 
 
 Hearing that, Zhutra started explaining his point of view, so Gromov congratulated himself to mute Zhutra's incoming voice.
 
-Seriously, Gromov continued: "Stay informed all our conversations have been recorded and available to authorities, including the proof of the egg's real origin."
+Seriously, Gromov continued: "Stay informed all our conversations have been recorded and available to authorities, including the proof of the Egg's real origin."
 
 After this, Gromov shut off the intercom and set a timer for fifteen minutes. This should be enough for Zhutra to experience an oxygen shortage but not threaten his life.
 
-Meanwhile, Gromov thought of Samara and her demon alter ego. Is the egg somehow related to my hallucinations? If so, what was the purpose of that thing? If rich people were willing to pay millions for it, is it a device that alters the state of one's mind? A technologically advanced substitution for chemical substances?
+Meanwhile, Gromov thought of Samara and her demon alter ego. Is the Egg somehow related to my hallucinations? If so, what was the purpose of that thing? If rich people were willing to pay millions for it, is it a device that alters the state of one's mind? A technologically advanced substitution for chemical substances?
 
 Letting his fantasy go wild, Gromov imagined an instrument that could make people intoxicated without actually swallowing drugs.
 
@@ -140,7 +140,7 @@ This time, Zhutra did not hesitate. "Yes, I am. I was waiting hours here, and no
 
 "I thought I lost consciousness."
 
-"Highly unlikely," Gromov assured him. "But let's skip trifles and get to the main course. I'm all ears, my beloved professor. What's with the egg?"
+"Highly unlikely," Gromov assured him. "But let's skip trifles and get to the main course. I'm all ears, my beloved professor. What's with the Egg?"
 
 "Allow me to come out of here first."
 
@@ -184,7 +184,6 @@ Apparently, Zhutra felt that his words might not be convincing enough. To his re
 
 "This is getting ridiculous," Gromov thought. Samara's body was transparent, but she was there, a reminder he should question his sanity.
 
-
 "Quite the contrary, professor," he said finally. "Even if I am inclined to dismiss it, I have no problem accepting the fact that you would believe in very irrational nonsense. As I am not your colleague of the Enlightened mind, I do not expect your story to make sense to me."
 
 "Is it so?"
@@ -220,5 +219,3 @@ Soon he realized the physics and mathematics behind it were so advanced that onl
 His obsession not only led nowhere, but one day, he earned an unsolicited visit from the special department of the Ministry of Defence. In a very friendly manner, the agents recommended to him to find a less intellectually challenging hobby suited more for an SF Seargent.
 
 Remembering that, Gromov could come to only one conclusion. If Professor Zhutra really dug up anything connected to quantum technologies (and the inexplicable apparition of Samara might indicate as much), they were all royally screwed up.
-
-

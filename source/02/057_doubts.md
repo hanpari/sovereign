@@ -8,7 +8,7 @@ Unfortunately, he could not deny Samara's disturbing presence. It was not only t
 
 Originally, he blamed the hangover (the vodka he bought back then was a cheap one, after all), but with the passing time, subtle cues began to manifest, indicating a drug rather than alcohol intoxication.
 
-Does the egg affect my brain, he wondered. The syndromes were akin to an LSD trip with uncomfortable shifts in his perception, in which the walls were becoming transparent, almost glass-like, with endless dark space behind them.
+Does the Egg affect my brain, he wondered. The syndromes were akin to an LSD trip with uncomfortable shifts in his perception, in which the walls were becoming transparent, almost glass-like, with endless dark space behind them.
 
 "Are you alright?"
 
@@ -62,7 +62,7 @@ Gromov knew she was right. But he also knew they were running out of time. If Sa
 
 Moreover, he could not stop thinking of what the Space Forces taught him about how the Plantarian virus worked. The described symptoms were similar with one difference: the infection took about a month to fully develop. Contrary to that, his condition kept changing way too fast, as if he got a dosage of the virus on steroids.
 
-Was the egg a biological weapon? Were his circumstances related to the egg at all? What if the Zhutra's ship had been infected before he entered there? What if Khamal and Simone were subjugated ones or perhaps infected beforehand, and they forgot to kindly inform him about the matter? After all, he could refuse to save them if a suspicious illness had been involved, especially when the Solar System went hysteric about the Plantarian threat.
+Was the Egg a biological weapon? Were his circumstances related to the Egg at all? What if the Zhutra's ship had been infected before he entered there? What if Khamal and Simone were subjugated ones or perhaps infected beforehand, and they forgot to kindly inform him about the matter? After all, he could refuse to save them if a suspicious illness had been involved, especially when the Solar System went hysteric about the Plantarian threat.
 
 If Samara told me the synthesis would have been finished in twenty hours, should he take it at face value? Thinking of her over and over, why did he not question his sanity instead of taking her words for granted?
 

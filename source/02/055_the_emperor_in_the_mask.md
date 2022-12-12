@@ -104,7 +104,7 @@ With no options of how to help him, Gromov sighed, silently leaning Uriah's impr
 
 Then, he adjusted Uriah's blanket with a certain tenderness. "All is fine, you moron," he mumbled afterward. "I am sure you'd appreciate Zhutra's story better than me. Thinking of it, isn't Khamal your long-lost brother? You seem to think alike."
 
-After that, Gromov picked up the egg and treasure chest left in the extraction chamber. Finally, he dropped into the armchair, opened ENEMY OF MANKIND, and glanced over the introduction that made him cringe inside.
+After that, Gromov picked up the Egg and treasure chest left in the extraction chamber. Finally, he dropped into the armchair, opened ENEMY OF MANKIND, and glanced over the introduction that made him cringe inside.
 
 'My precious readers,' started Mr. Gordon Brown, 'I undertook a challenging task to have a closer look at a person and history of which we can find only scarce or deleted accounts.'
 
